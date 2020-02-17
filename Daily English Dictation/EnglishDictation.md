@@ -14,4 +14,10 @@ She was 87 years old.
 5. I have come here to chew bubblegum and kick ass, and I'm all out of bubblegum.
 
 
-6. 
+6. The secret of life is just to live every moment.
+
+
+7. Another rogue trader has cost a bank billions.
+
+
+8. German rolf books call, she is the man was his most peiecing she is got his 453.

@@ -2,7 +2,6 @@
 <project version="4">
   <component name="ChangeListManager">
     <list default="true" id="b9075104-e337-4ee5-be9f-3f8f1cd910b5" name="Default Changelist" comment="">
-      <change beforePath="$PROJECT_DIR$/.idea/workspace.xml" beforeDir="false" afterPath="$PROJECT_DIR$/.idea/workspace.xml" afterDir="false" />
       <change beforePath="$PROJECT_DIR$/Daily English Dictation/EnglishDictation.md" beforeDir="false" afterPath="$PROJECT_DIR$/Daily English Dictation/EnglishDictation.md" afterDir="false" />
     </list>
     <option name="EXCLUDED_CONVERTED_TO_IGNORED" value="true" />
@@ -33,8 +32,8 @@
         <entry file="file://$PROJECT_DIR$/Daily English Dictation/EnglishDictation.md">
           <provider selected="true" editor-type-id="split-provider[text-editor;markdown-preview-editor]">
             <state split_layout="SPLIT">
-              <first_editor relative-caret-position="336">
-                <caret line="16" column="3" selection-start-line="16" selection-start-column="3" selection-end-line="16" selection-end-column="3" />
+              <first_editor relative-caret-position="462">
+                <caret line="22" column="15" selection-start-line="22" selection-start-column="15" selection-end-line="22" selection-end-column="15" />
               </first_editor>
               <second_editor />
             </state>
@@ -112,12 +111,12 @@
       <workItem from="1581727345467" duration="682000" />
       <workItem from="1581735314147" duration="271000" />
       <workItem from="1581737889201" duration="584000" />
-      <workItem from="1581773691616" duration="1245000" />
+      <workItem from="1581773691616" duration="2281000" />
     </task>
     <servers />
   </component>
   <component name="TimeTrackingManager">
-    <option name="totallyTimeSpent" value="2782000" />
+    <option name="totallyTimeSpent" value="3818000" />
   </component>
   <component name="ToolWindowManager">
     <frame x="0" y="23" width="1680" height="950" extended-state="0" />
@@ -171,8 +170,8 @@
     <entry file="file://$PROJECT_DIR$/Daily English Dictation/EnglishDictation.md">
       <provider selected="true" editor-type-id="split-provider[text-editor;markdown-preview-editor]">
         <state split_layout="SPLIT">
-          <first_editor relative-caret-position="336">
-            <caret line="16" column="3" selection-start-line="16" selection-start-column="3" selection-end-line="16" selection-end-column="3" />
+          <first_editor relative-caret-position="462">
+            <caret line="22" column="15" selection-start-line="22" selection-start-column="15" selection-end-line="22" selection-end-column="15" />
           </first_editor>
           <second_editor />
         </state>
