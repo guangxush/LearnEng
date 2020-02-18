@@ -20,4 +20,10 @@ She was 87 years old.
 7. Another rogue trader has cost a bank billions.
 
 
-8. German rolf books call, she is the man was his most peiecing she is got his 453.
+8. German, Rolf Buchhols, is the man with the most piercings, he is got 453.
+
+
+9. A satellite that was carried to space aboard the shuttle Discovery 20 years ago is about to fall to Earth, but nobody knows where the debris will hit.
+
+
+10. It is a lifties, probably impossible goal.
