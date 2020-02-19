@@ -26,4 +26,10 @@ She was 87 years old.
 9. A satellite that was carried to space aboard the shuttle Discovery 20 years ago is about to fall to Earth, but nobody knows where the debris will hit.
 
 
-10. It is a lifties, probably impossible goal.
+10. It is a lofty, probably impossible goal.
+
+
+11. New York swept Tampa Bay Rays by identical 4-2 scores, in a day-night doubleheader Wednesday.
+
+
+12. Jem Hander created the muppets, from carry the full secrets was greamer misesebe
