@@ -32,4 +32,11 @@ She was 87 years old.
 11. New York swept Tampa Bay Rays by identical 4-2 scores, in a day-night doubleheader Wednesday.
 
 
-12. Jem Hander created the muppets, from carry the full secrets was greamer misesebe
+12. Jem Henson, creator of The Muppets -- from Kermit the Frog to Sesame Street -- is born in Greenville, Mississippi.
+
+
+13. Asian tiger mosquitoes are native to the tropics of the Southeast Asian, but in the past few years that they've spread all across the southeastern United Sates.
+
+
+14. Cats repeated the ninth life, and he clearly want to spend their wonderm them here and New York city.
+
