@@ -38,5 +38,19 @@ She was 87 years old.
 13. Asian tiger mosquitoes are native to the tropics of the Southeast Asian, but in the past few years that they've spread all across the southeastern United Sates.
 
 
-14. Cats repeated the ninth life, and he clearly want to spend their wonderm them here and New York city.
+14. Cats reputedly have nine lives and he clearly wanted to spend at least one of them here in New York City.
+
+
+15. The frantic pacing -- scene changes every 11 seconds on average -- often leaves kids zoned out and spud up; unable to concentrate.
+
+
+16. Battered, soaked and flooded, the Philippines, has being hit by the second typhoon in a week.
+
+
+
+
+
+
+
+
 
