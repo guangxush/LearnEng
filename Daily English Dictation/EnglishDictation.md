@@ -33,7 +33,13 @@ She was 87 years old.
 
 17. A few years ago, they were thought to be useless, past their prime, not now.
 
-18. If you are breathing, it is not too late, get up and get going.
+18. If you are breathing, it is not too late. Get up and get going.
+
+19. A 67-year-old grandpa have been found alive after being stuck for 6 days at the bottom of a ravine.
+
+20. Saturday, at a plan crushed to the flicy in fast wall in Australlia, yet someone in the driver and no one has planed was hurt. 
+
+
 
 
 

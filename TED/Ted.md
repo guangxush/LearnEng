@@ -25,7 +25,24 @@ Get into a daily habit of updating your mental inventory.
 The intentional life has the power to grant you more of those beautiful moments in the sun.
 
 
+### How to move through insecurities
 
+I've always believed that to feel really good about ourselves it's important as I call it to be lit up in life.
+
+I moved through insecurities and tapped into that passion and purpose.
+
+All to search for life meaning, I was lonely.
+
+If you were able to acknowledge those negative thoughts and let them go, and then turn the volume 
+and the noise down.
+
+What would you open up for you and what would be possible? Unlimited possible, no speed limit.
+
+I encourage you to take time out every day for self-reflection. 
+
+ 
+ 
+ 
 
 
 
