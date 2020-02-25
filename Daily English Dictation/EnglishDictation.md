@@ -37,7 +37,15 @@ She was 87 years old.
 
 19. A 67-year-old grandpa have been found alive after being stuck for 6 days at the bottom of a ravine.
 
-20. Saturday, at a plan crushed to the flicy in fast wall in Australlia, yet someone in the driver and no one has planed was hurt. 
+20. Saturday, an ultralight plane crashed into a Ferris wheel at a rural festival in Australia, yet somehow on one on the amusement ride nor the plane was hurt. 
+
+21. Heidi won the world over with forever cute, but slightly confused look.
+
+22. The project mun is expected to be completed by 26th.
+
+
+
+
 
 
 

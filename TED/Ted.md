@@ -40,6 +40,30 @@ What would you open up for you and what would be possible? Unlimited possible, n
 
 I encourage you to take time out every day for self-reflection. 
 
+
+### How do we break free of our habitual negative bias of our brain towards stressful state?
+
+Generally, stress refers to tension, but angry, fear, hurt, loneliness, frustration are all stressful state.
+
+Beautiful state is a state of connection, joy, love, compassion, vitality and passion.
+
+If you are not a beautiful state, your default state is stress.
+
+If you look at the entirety of human life, behind war or peace, cooperation or corrosive politics,
+love or separation, persistence or failure behind all these is the driving force of these two states.
+
+In a beautiful state, there is no compulsive illumination f the past or anxiety over the future.
+
+It's a state where experience inner simplicity and a brilliance of an uncluttered mind.
+
+Realizing that all lingering and suffering is a total preoccupation with oneself. That's an obsessive self-centric thinking, is the
+most powerful antidote.
+
+Paying more attention to yourself leads to disconnection from others and always tangles the past or fears the future,
+which is the source of stress. Focus more on other things and experience the feelings of others that needed.
+
+ 
+
  
  
  
