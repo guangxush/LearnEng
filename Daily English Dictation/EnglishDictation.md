@@ -41,11 +41,11 @@ She was 87 years old.
 
 21. Heidi won the world over with forever cute, but slightly confused look.
 
-22. The project mun is expected to be completed by 26th.
+22. The project to put them online is expected(anticipated/thought to be) to be completed(finished) by 2016.
 
+23. An alleged(声称) SAT cheating scandal(丑闻) has been uncovered at a prestigious(声望很高的) Long Island high school. This college student is accused of taking the college entrance exam for at least six students.
 
-
-
+24. It was take a world see of opened on a cool night. It was 49 screen and stop the game.
 
 
 
