@@ -45,11 +45,11 @@ She was 87 years old.
 
 23. An alleged(声称) SAT cheating scandal(丑闻) has been uncovered at a prestigious(声望很高的) Long Island high school. This college student is accused of taking the college entrance exam for at least six students.
 
-24. It was take a world see of opened on a cool night. It was 49 screen and stop the game.
+24. St Louis takes the World Series opener on a cool night. It was 49 degrees at the start of the game.
 
+25. They searched for the missing throughout the night under generator-powered flood lights as(while) family members waited by the mounds(mountains) of debris(残骸) --- some in tears.
 
-
-
+26. This kind of seen you, you look forward to instead of some our cutting, you think of your work consistence just fun.
 
 
 

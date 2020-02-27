@@ -81,17 +81,37 @@ We all see the world through our own mind's eye, but we can teach ourselves to s
 In some days, It might look like the world is a dangerous and challenging and insurmountable place, but It does't 
 have to look that way all the time. We can teach ourselves to see it differently, and when we find a way to make the world look nice and easier.
 
+### Objectives and Key Results
 
+We are at a critical moment, our leader and some instruction haven't taken us to the wrong objectives.
 
+How are we going to choose the right course?
 
+They set meaningful and audacious goals, the right goals for the right reasons.
 
+It almost doesn't matter what you know, execution is what matters the most.
 
+Objectives and Key Results, or OKRs, are a simple goal-setting system and they work for organizations, they work for teams,
+they even work for individuals.
 
- 
+The objectives are what you want to have accomplished. The key results are how I'm going to get the done.
 
- 
- 
- 
+A lot of organizations set objectives and meet them, they ship their sales, they introduce their new products, they make their numbers.
+but they lack a sense of purpose to inspire their teams. 
+
+OKRs cultivate the madness, and magic is right around the corner. That is perfect.
+
+A good results are specific and time-bound. They are aggressive but realistic. They are measurable, and they're verifiable.
+
+These are not used for bonuses or for promotions. They used for the high purpose and that's go to the collective commitment to truly stretch goals.
+
+OKRs are not a sliver bullet. They're not going to be a substitute for a strong culture or for strong leadership, but when those fundamentals are 
+in place, they can take you to the mountaintop.
+
+Let's fight for what it is that really matters, because we can take OKRs beyond our business. We can take them to our families, to our schools, even to our governments.
+
+We can transform those informations. We can back to the right track, if we can and do measure what really matters. 
+
 
 
 
