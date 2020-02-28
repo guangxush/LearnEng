@@ -110,7 +110,38 @@ in place, they can take you to the mountaintop.
 
 Let's fight for what it is that really matters, because we can take OKRs beyond our business. We can take them to our families, to our schools, even to our governments.
 
-We can transform those informations. We can back to the right track, if we can and do measure what really matters. 
+We can transform those information. We can back to the right track, if we can and do measure what really matters. 
+
+### The hidden power of smile
+
+When I was a child, I always wanted to be a superhero. I wanted to save the world and make everyone happy.
+
+I decided instead to embark on a journey of real science, to find a more useful truth.
+
+The researchers found that the span of a player's smile could actually predict the span of his life.
+
+Smiling is one of the most basic, biologically uniform expressions of all humans.
+
+We smile often, and use smiles to express joy and satisfaction.
+
+Outside of this room, more than a third of us smile more than 20 times per day, whereas less than 14 percent of us smile.
+
+By showing that facial feedback, modifies the neural processing of emotional content in the brain, in a way that helps us feel better when we smile.
+
+Smiling stimulates our brain reward mechanism in a way that even chocolate, a well-regarded pleasure inducer can not match.
+
+When you smile, you don't only appear to be more likable and courteous, but you actually appear to be more competent.
+
+So whenever you want to look great and competent, reduce your stress, or improve your marriage, 
+that will help you and everyone around you live a longer, healthier, happier life, smile.  
+
+
+
+
+
+
+
+
 
 
 

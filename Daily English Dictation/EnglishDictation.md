@@ -49,9 +49,11 @@ She was 87 years old.
 
 25. They searched for the missing throughout the night under generator-powered flood lights as(while) family members waited by the mounds(mountains) of debris(残骸) --- some in tears.
 
-26. This kind of seen you, you look forward to instead of some our cutting, you think of your work consistence just fun.
+26. It's(Hanging Yoga) the kind of thing you look forward to(be excited to) instead of, you know, some workouts you dread and you think of it as work and this is just fun.
 
+27. Superhero costumes(装束), as usual, are big(popular) this year, especially from recent movies likes Thor and the Green Lantern.
 
+28. It's a pain, my fridge is dump today, my foods gone.
 
 
 
