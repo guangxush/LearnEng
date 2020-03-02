@@ -136,6 +136,34 @@ So whenever you want to look great and competent, reduce your stress, or improve
 that will help you and everyone around you live a longer, healthier, happier life, smile.  
 
 
+### How disease spread all around the world?
+
+We live in an interconnected, an increasingly globalized world. Thanks international jet travel, people and the disease they carry
+can be in any city on the planet in a matter of hours.
+
+And once a virus touches down, sometimes all it takes is one sneeze to speed the infection throughout the community.
+
+When humans were hunter-gatherers, roaming the wild savannas, we were never in one place long enough, and settlement were 
+not large enough to sustain the transmission of infectious microbes.
+
+In the Middle East, people began living side-by-side animals, facilitating the spread of bacteria and viruses between cattle and humans.
+
+But the most common cause of epidemics are viruses, such as measles, influenza and HIV. And we they go global, we call them pandemics.
+
+The first indication of the pandemic came in Spring, when American troops in northern France began complaining of chills, headaches and fever.
+
+He was harboring a new animal-origin virus called SARS, short for Severe Acute Respiratory Syndrome.
+
+SARS was a reminder that pandemics have always been associated with panic.
+
+If history teaches us anything, it's that while pandemics may start small, their impacts can be as dramatic
+as wars and natural disasters.
+
+The different today is that science gives us the ability to detect pandemics right at the very beginning 
+and to take action to mitigate their impacts before they spread too widely.
+
+
+
 
 
 

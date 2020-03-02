@@ -53,10 +53,11 @@ She was 87 years old.
 
 27. Superhero costumes(装束), as usual, are big(popular) this year, especially from recent movies likes Thor and the Green Lantern.
 
-28. It's a pain, my fridge is dump today, my foods gone.
+28. It's a pain(frustrating) 'cuz(cause) my fridge is ... I dumped it today, and the food's gone.
 
+29. He says he was simply(just) going by the book(照本宣科) when it comes to landing without gear(wheels), and he and his fellow pilots train for these types of incidents(situations). 
 
-
+30. It is the vegetable songs a lot of humans hate, now a new bride broccoli, super broccoli developed number type kinds disease, even some kind of cancer.
 
 
 
