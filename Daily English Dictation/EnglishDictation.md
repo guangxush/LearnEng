@@ -57,11 +57,11 @@ She was 87 years old.
 
 29. He says he was simply(just) going by the book(照本宣科) when it comes to landing without gear(wheels), and he and his fellow pilots train for these types of incidents(situations). 
 
-30. It is the vegetable songs a lot of humans hate, now a new bride broccoli, super broccoli developed number type kinds disease, even some kind of cancer.
+30. It is the vegetable some(people) love to hate! But now a new bread of broccoli -- super broccoli -- developed in Britain may protected against heart disease, even some kinds of cancer.
 
+31. Mayor Sam Adams ordered that the camp(demonstrators) be shut down(closed) Saturday citing(reasons of) unhealthy conditions and the attraction of drug dealers and thieves.
 
-
-
+32. The japan governments report the predicate to take 30 years any more decade settle and could be decade before nearby resident to flow by the near rear.
 
 
 

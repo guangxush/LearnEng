@@ -163,6 +163,42 @@ The different today is that science gives us the ability to detect pandemics rig
 and to take action to mitigate their impacts before they spread too widely.
 
 
+### The way to overcome FOBO
+
+You're probably familiar with FOMO, that's short of "Fear Of Missing Out".
+
+Everyone do something better than what you are doing now.
+
+It's far more dangerous, it's called FOBO, and it's short for "Fear Of a Better Option".
+
+We live in a world of overwhelming choice, even the decisions that used to be simple, like choosing a restaurant or making everyday purchases are 
+fraught with over analysis.
+
+Technology has only made the issue more pronounced.
+
+Chances are you've experienced FOBO when you struggled to choose just one from a group of perfectly acceptable outcomes.
+
+It's a symptom of a culture which sees value in collecting and preserving as many options as possible.
+
+Shouldn't it be a privilege to have so many good options to choose from.
+
+The problem is, FOBO induces such server analysis paralysis that it can negatively impact both personal and professional life.
+
+When you can't make a decisions with conviction, you waste precious and energy.
+
+With any decision you make, you first have to determine the stakes as this will inform your
+decision-making strategy.
+
+You only really face three types of decisions in life: high stakes, low stakes and no stakes.
+
+Something is in required but these aren't make-or-break deliberations and you probably forget about them in a few weeks.
+
+The FOBO comes when you struggle to choose just one from a group of perfectly acceptable options.
+
+So no matter what you choose, you can rest assured that the downside is limited.
+
+You have plentiful opportunities to live decisively, you may not get everything you want, but the mere fact you get to decide is powerful.
+
 
 
 
