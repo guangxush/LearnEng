@@ -61,8 +61,8 @@ She was 87 years old.
 
 31. Mayor Sam Adams ordered that the camp(demonstrators) be shut down(closed) Saturday citing(reasons of) unhealthy conditions and the attraction of drug dealers and thieves.
 
-32. The japan governments report the predicate to take 30 years any more decade settle and could be decade before nearby resident to flow by the near rear.
+32. A preliminary government report predicts(forecast) It'll take 30 years or more to safely decommission the facility(设施) and it could be decades(a ten years) before nearby residents(居民) who were forced to flee(run away) can return to the area.
 
+33. I was lifting, you know, chairs out the(outta) way, broken glass uh, other sanitary items I don't want to(wanna) get into, but uh, it was uh, horrific(terrible/disgusting) to say the least.
 
-
-
+34. ToYoTa is a car, more than half of a million vli cars, for problem that it make it them difficult to stair.

@@ -200,10 +200,32 @@ So no matter what you choose, you can rest assured that the downside is limited.
 You have plentiful opportunities to live decisively, you may not get everything you want, but the mere fact you get to decide is powerful.
 
 
+### How to make a career change?
+
+In the last 15 years of my career, I've been an English teacher, attorney, video game creator and now a 
+toilet paper salesman, selling millions of rolls of toilet paper a year.
+
+I then came upon the epiphany that takes years if not tens of thousands of hours to get really good at something.
+I really didn't have a lot of time to waste.
+
+First, the there things to think about before you're ready to move on:
+- Professional life is about learning.
+- Career changes are often gut-driven.
+- Pain shouldn't be a factor.
+
+You're convinced that it's time to change your career:
+- Go out the network and meet new people.
+- Shore up your finances.
+- Learn to side hustles.
+
+If you're ready made the move, the three things you should think about doing:
+- Do not burn bridges.
+- Take stock what you've learned.
+- Don't worry, take a deep breath.
 
 
 
-
+ 
 
 
 
