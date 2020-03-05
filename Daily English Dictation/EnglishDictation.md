@@ -65,4 +65,9 @@ She was 87 years old.
 
 33. I was lifting, you know, chairs out the(outta) way, broken glass uh, other sanitary items I don't want to(wanna) get into, but uh, it was uh, horrific(terrible/disgusting) to say the least.
 
-34. ToYoTa is a car, more than half of a million vli cars, for problem that it make it them difficult to stair.
+34. Toyota is recalling more than half a million vehicles for problem that could make them difficult to steer(驾驶).
+
+35. It's great. It's um been a little bit never-wracking(full of anxiety), um, and it's been a long process to get here.
+
+36. When the family left the Talend at now by boat, Alend by the boat when it set to the A, after the year of the travel, the father located at in Talen.
+

@@ -33,8 +33,8 @@
         <entry file="file://$PROJECT_DIR$/Daily English Dictation/EnglishDictation.md">
           <provider selected="true" editor-type-id="split-provider[text-editor;markdown-preview-editor]">
             <state split_layout="SPLIT">
-              <first_editor relative-caret-position="378">
-                <caret line="67" column="71" selection-start-line="67" selection-start-column="71" selection-end-line="67" selection-end-column="71" />
+              <first_editor relative-caret-position="421">
+                <caret line="71" column="13" selection-start-line="71" selection-start-column="13" selection-end-line="71" selection-end-column="13" />
               </first_editor>
               <second_editor />
             </state>
@@ -45,8 +45,8 @@
         <entry file="file://$PROJECT_DIR$/TED/Ted.md">
           <provider selected="true" editor-type-id="split-provider[text-editor;markdown-preview-editor]">
             <state split_layout="SPLIT">
-              <first_editor relative-caret-position="378">
-                <caret line="218" column="10" lean-forward="true" selection-start-line="218" selection-start-column="10" selection-end-line="218" selection-end-column="10" />
+              <first_editor relative-caret-position="372">
+                <caret line="277" selection-start-line="277" selection-end-line="277" />
               </first_editor>
               <second_editor />
             </state>
@@ -140,18 +140,20 @@
       <workItem from="1583108791612" duration="3760000" />
       <workItem from="1583139524694" duration="36000" />
       <workItem from="1583195673688" duration="4245000" />
-      <workItem from="1583282702916" duration="3088000" />
+      <workItem from="1583282702916" duration="3467000" />
+      <workItem from="1583369209369" duration="5643000" />
+      <workItem from="1583404235545" duration="947000" />
     </task>
     <servers />
   </component>
   <component name="TimeTrackingManager">
-    <option name="totallyTimeSpent" value="42071000" />
+    <option name="totallyTimeSpent" value="49040000" />
   </component>
   <component name="ToolWindowManager">
-    <frame x="0" y="23" width="1680" height="950" extended-state="6" />
+    <frame x="0" y="23" width="1680" height="950" extended-state="0" />
     <editor active="true" />
     <layout>
-      <window_info content_ui="combo" id="Project" order="0" visible="true" weight="0.14224665" />
+      <window_info content_ui="combo" id="Project" order="0" visible="true" weight="0.14529915" />
       <window_info id="Structure" order="1" side_tool="true" weight="0.25" />
       <window_info id="Image Layers" order="2" />
       <window_info id="Designer" order="3" />
@@ -199,8 +201,8 @@
     <entry file="file://$PROJECT_DIR$/TED/Ted.md">
       <provider selected="true" editor-type-id="split-provider[text-editor;markdown-preview-editor]">
         <state split_layout="SPLIT">
-          <first_editor relative-caret-position="378">
-            <caret line="218" column="10" lean-forward="true" selection-start-line="218" selection-start-column="10" selection-end-line="218" selection-end-column="10" />
+          <first_editor relative-caret-position="372">
+            <caret line="277" selection-start-line="277" selection-end-line="277" />
           </first_editor>
           <second_editor />
         </state>
@@ -209,8 +211,8 @@
     <entry file="file://$PROJECT_DIR$/Daily English Dictation/EnglishDictation.md">
       <provider selected="true" editor-type-id="split-provider[text-editor;markdown-preview-editor]">
         <state split_layout="SPLIT">
-          <first_editor relative-caret-position="378">
-            <caret line="67" column="71" selection-start-line="67" selection-start-column="71" selection-end-line="67" selection-end-column="71" />
+          <first_editor relative-caret-position="421">
+            <caret line="71" column="13" selection-start-line="71" selection-start-column="13" selection-end-line="71" selection-end-column="13" />
           </first_editor>
           <second_editor />
         </state>

@@ -224,6 +224,71 @@ If you're ready made the move, the three things you should think about doing:
 - Don't worry, take a deep breath.
 
 
+### How to improve the 
+
+A few years ago, my obsession with productivity got so bad that I suffered 
+an episode of burnout that scared the hell out of me.
+
+I'm talking insomnia, wight gain, hair loss - the works, I was so overworked.
+that my brain literally couldn't come up with another idea.
+
+That indicated to me that my identity was linked with this idea of productivity.
+
+Do you feel guilty if you haven't been productive enough during the day? Do you spend hours reading productivity hacks, trying
+new frameworks and testing new apps to get even more done?
+I've tried them all things that are meant to manage your day.
+
+We've been so obsessed with doing more that we've missing the most important thing.
+
+Historically, productivity as we know it today was used during the industrial revolution. It was a system that measured performance
+based on consistent output.
+
+When we shifted to a knowledge economy, people suddenly had tasks that were more abstract things
+like writing, problem-solving or strategizing, tasks that weren't easy to measure.
+
+Companies struggled to figure out how to tell who was working and who wasn't, so they just adopted
+the old systems as best as they could, leading to the things like the dreaded time sheet, where everyone is under pressure.
+to justify how they spend every second of their day. These systems don't make a lot of sense for creative work.
+
+We still think of productivity as an endurance sport. You try to churn out as many blog posts or we cram our day full of meetings. 
+But this model of constant output isn't conducive to creative thought.
+
+Today, knowledge workers are facing a big challenge. We're expected to be constantly producing and creative is equal measure.
+But our brains to continuously generate new ideas with no rest. In fact, downtime is a necessity for our brain to recovery and to operate properly.
+
+Let our minds wander is an essential mental state that helps us develop our identity.
+process social interactions and even influences our internal moral compass.
+
+Our need for a break flies in the face of our cultural narrative about hustling.
+In other words, the stories that we as a society tell each other about what success looks like and what 
+it takes to get there.
+
+Everyone has their own narratives that they have to uncover, It wasn't until I started digging around my own beliefs around the work
+that I began to unravel the root of my own work story, finally being able to let go of destructive behaviors.
+and make positive, long-lasting changes.
+
+And the only way to do that is by asking yourself some hard questions. Does being busy make you feel valuable?
+Who do you hold up as an example of success? Where did your ideas of work ethic come from? How much of how you are and is linked to
+what you do?
+
+You creativity, it has its own rhythms, our energy fluctuates daily, even seasonally. 
+
+- Dismantling myths
+- Challenging your old views
+
+ 
+
+
+
+
+
+ 
+
+
+
+
+
+
 
  
 
