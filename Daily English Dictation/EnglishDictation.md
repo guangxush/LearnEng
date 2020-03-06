@@ -69,5 +69,11 @@ She was 87 years old.
 
 35. It's great. It's um been a little bit never-wracking(full of anxiety), um, and it's been a long process to get here.
 
-36. When the family left the Talend at now by boat, Alend by the boat when it set to the A, after the year of the travel, the father located at in Talen.
+36. When the family left Vietnam by boat, bound for Thailand, but the boat was intercepted(拦截) by Pirates, after years of trying, the father located his son in Thailand.
+
+37. A gooey(sticky) mess(dirty) snarls(妨碍 twist) traffic along the busy Pennsylvania Turnpike(tollway). A leaking valve(阀) on a tanker spread driveway sealant(密封剂) across a 40-mile stretch of the eastbound side.
+
+38. A music is been played at a cheery in German and while it live up to its name. Since the study happened 11 call challenges and the next one electrical is scheduled on July 22.
+
+
 

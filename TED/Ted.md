@@ -276,6 +276,38 @@ You creativity, it has its own rhythms, our energy fluctuates daily, even season
 - Dismantling myths
 - Challenging your old views
 
+
+###
+
+We do have a problem thought, and that is the most important relationship we have in our lives
+is one we have with ourselves and we are not taught about it.
+
+I want to challenge you to think about if we were taught how to look after ourselves using self-care.
+could we help enrich our lives, make us happier, combat our insecurities and enable us to reach our full potential?
+
+Body image is often associated with teenage girls.
+Eating disorders and mental health can affect anyone at any age, at any time.
+
+
+So I decided to use those experiences that i've had to gain a better understanding of the relationship.
+I have with my body and myself. And by practicing self-care, I was able to change my life. If you haven't already started, to start the journal of self-love.
+
+It's crazy these days, we have so many pressures, and now we have social media, with the rise of social media, 
+we literaly have a weapon of mass destruction to our self-esteem 24/7.
+
+Social media is a curated, filtered, often airbrushed and sometimes even lifestyle illusion.
+That's why we need to be taught about it how to cope with these pressures in schools. We need to 
+taught how to look after ourselves mentally, physically and emotionally.
+
+The main concept we teach is the "beauty ideal myth", we get all of kids to have magazines and pick up the 
+perfect body. It's so detrimental to your mental and physical health. 
+
+I'm so grateful I've been here today and able to connect with you all, because I want to encourage every single one of you
+to invest in yourself right now. I want to you understand that if you learn self-care, practice self-care, you can get the gift
+self-care. Imaging being able to give your loved ones, the gift of self-love. Speaking to your body in a loving way. It's the only
+one you've got. It's your home and it deserves your respect. If you see anyone tearing themselves down, build them back up.
+And watch your life positively grow, when you give up the pursuit of perfection. Because the real beauty ideal is being imperfectly you
+Thank you so much, everybody.
  
 
 
