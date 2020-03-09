@@ -310,7 +310,36 @@ And watch your life positively grow, when you give up the pursuit of perfection.
 Thank you so much, everybody.
  
 
+### The six steps to improve your emotional intelligence ?
 
+I want to start with doing a small survey with you. For that, please puts your hands into your laps and close your eye.
+
+I want to be honest with you, emotional intelligence is not necessarily my main strength. When I make decisions, I based 
+them solely on my rational.
+
+Five years ago, when I dropped out of a job because of a burnout. It was then that my very emotional side was 
+revealed, and while I rarely cried before, especially not in front of people, I just couldn't stop the tears from 
+streaming down my face at the most inconvenient of times anymore.
+
+It has a bad connotation, describing a person having or expressing strong feelings. It's describing a person having and 
+expressing strong feeling.
+
+It's the ability to identify and manage your emotions and those of others, and it's set to include three skills:
+- emotional awareness: empathy, empathy towards others but also towards the self
+- the ability to harness motions and apply them to tasks like problem solving
+- the ability to manage emotions, which includes regulating your own emotions and cheering up
+or calming down other people
+
+We first of all need to consider emotional intelligence as a curial skill in our society, and then
+also take the time to consciously work on it.
+
+I tried to compile my experiences and came up with six-step guide that hopefully helps people to get more emotional intelligence.
+- Acknowledge Emotions 
+- Differentiate and Analysis Emotions
+- Accept and Appreciate Emotions
+- Reflect on your Emotions and Their Origin
+- Handle your emotions
+- Handle the emotions of others
 
 
 

@@ -73,7 +73,10 @@ She was 87 years old.
 
 37. A gooey(sticky) mess(dirty) snarls(妨碍 twist) traffic along the busy Pennsylvania Turnpike(tollway). A leaking valve(阀) on a tanker spread driveway sealant(密封剂) across a 40-mile stretch of the eastbound side.
 
-38. A music is been played at a cheery in German and while it live up to its name. Since the study happened 11 call challenges and the next one electrical is scheduled on July 22.
+38. A music is been played at a church in Germany, and well, it really lives up to(符合，不辜负) its name. Since it started, there has been just 11 chord（和弦） changes and the next one isn't scheduled until July 2012.
 
+39. Dozens(12) of white rabbit were apparently（似乎） dumped along the side of the road Sunday night, more than 60 bunnies were scattered(散落) on the shoulder（of the road）.
+
+40. The wonderful line I came across, is always done, or is always do, or is always done, or is always get, or is always got, server line.
 
 
