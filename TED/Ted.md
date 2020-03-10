@@ -342,6 +342,62 @@ I tried to compile my experiences and came up with six-step guide that hopefully
 - Handle the emotions of others
 
 
+### What causes recessions?
+
+For millennia, the people of Britain had been using bronze to make tools and jewelry and as a currency for trade.
+But around 800 BCE, the began to change: the value of bronze declined, causing social upheaval and an economic crisis
+what we would call a recession today.
+
+This question has long been a subject of heated debate among economists, and for good reason.
+A recession can be a mild decline in economic activity in single country that lasts months, a
+long-lasting downturn with global ramifications that last years, or anything in between.
+
+There're countless variables that contribute to an economic's health, making it difficult to 
+pinpoint specific causes.
+
+Recession occur when there is a negative disruption to the balance between supply and demand.
+There's a mismatch between how goods people want to buy, how many products and services products can offer,
+and prices of goods and services sold, which prompts an economic decline.
+
+An economy's relationship between supply and demand is reflected in its inflation rates and interest rates.
+Inflation happens when goods and services get more expensive. Put another way, the value of money decreases.
+Still, inflation isn't necessarily a bad thing. In fact, a low inflation rate is thought to encourage economic
+activity. But high inflation that isn't accompanied with high demand can both cause problems for economic and eventually
+lead to recession.
+
+Interest rate, meanwhile, reflect the cost of taking on debt for individuals and companies. The rate is typically
+an annual percentage of a loan that borrowers pay to their creditors until the loan is rapid.
+Low interest rates mean that companies can afford to borrow more money, which they can used to invest in more
+projects. High interest rates, meanwhile, increase rates for producers and consumers, slowing the economic activity.
+
+Fluctuations in inflation and interest rates can give us insight into the health of economy, but what causes these fluctuations
+in the first place?
+- The most obvious causes are shocks like natural disaster, war and geopolitical factors.
+An earthquake can destroy the infrastructure needed to produce important commodities such as oil.
+
+- Some recessions occur in times of economic prosperity, possible even because of economic prosperity.
+The business activity can occasionally reach an unsustainable level, corporations and consumers may borrow
+more money with the assumption that economic growth will help them handle the added burden. But if the 
+economic doesn't grow as quickly as expected, they may end up with more debt than they can manage.
+To pay it off, they'll have to redirect funds from other activities, reducing business activity.
+
+- Psychology can also contribute to a recessions. Fear of a recessions can become a self-fulfilling prophecy.
+if it causes people to pull back investing and spending. In response, producers might cut operating costs to help
+weather the expected delcine in demand. That can lead to a vicious cycle as cost cuts eventually lower wages.
+leading to even lower demand.
+
+- Even policy designed to help prevent recessions can contribute. When times are though, governments and central banks may
+print money, increase spending, and lower central bank interest rates. Smaller lenders can in turn lower their interests rates,
+effectively making debt "cheaper" to boost spending. But these policies are not sustainable and eventually need to be reversed.
+These cause a recession if people have become too reliant on cheap debt and government stimulus.
+
+Each recession provides new data to help anticipate and response to future recessions more effectively.
+
+
+
+
+
+
 
  
 
@@ -351,7 +407,15 @@ I tried to compile my experiences and came up with six-step guide that hopefully
 
 
 
+
  
+
+
+
+
+
+
+
 
 
 

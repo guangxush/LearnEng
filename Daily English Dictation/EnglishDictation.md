@@ -77,6 +77,10 @@ She was 87 years old.
 
 39. Dozens(12) of white rabbit were apparently（似乎） dumped along the side of the road Sunday night, more than 60 bunnies were scattered(散落) on the shoulder（of the road）.
 
-40. The wonderful line I came across, is always done, or is always do, or is always done, or is always get, or is always got, server line.
+40. There is a wonderful line(quotation) I came across(found), If you are always done ... or, If you always do what you've always done, you'll always get what you've always got. It's a brilliant line.
 
+41. Her stories has inspired others form Montana to Indiana to pay off the bills of complete strangers in these days before Christmas.
+ Holiday shoppers who've heard about the layaway Santas say the sweeping(彻底的，影响广泛的) acts of kindness(善举) have restored(恢复，使复原，修整) their faith(信心) in people.
 
+42. It's a brand wishly to its team give a visual and the way of the full's visual and donated wishes but I heard it clear so the dropout outsides.
+Happy Christmas to all and to all a good night.
