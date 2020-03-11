@@ -82,5 +82,11 @@ She was 87 years old.
 41. Her stories has inspired others form Montana to Indiana to pay off the bills of complete strangers in these days before Christmas.
  Holiday shoppers who've heard about the layaway Santas say the sweeping(彻底的，影响广泛的) acts of kindness(善举) have restored(恢复，使复原，修整) their faith(信心) in people.
 
-42. It's a brand wishly to its team give a visual and the way of the full's visual and donated wishes but I heard it clear so the dropout outsides.
+42. He sprang(jump) to his sleigh(雪橇) to his team gave a whistle(鸣笛)! And away they all flew like the down of a thistle（蓟）. But I heard him exclaim（say 喊叫） as he drove out of sight. 
 Happy Christmas to all and to all a good night.
+
+43. E: Hey, George, you know(um), my friend goes to a psychics(巫师)? G: Really? E: Uh-huh, we should go sometime. G: I'd love to go. Make an appointment.
+
+44. R: Dad, I beat you. Don't you remember the Ray man Spinball? F: Ray, I learned to play in Korea, from Koreans. 
+Do you think some punk kid's gonna actually beat me? R: No, dad, You were trying to win. you were sweating and panting. 
+F: I'm a damn fine actor.

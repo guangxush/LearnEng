@@ -393,6 +393,73 @@ These cause a recession if people have become too reliant on cheap debt and gove
 
 Each recession provides new data to help anticipate and response to future recessions more effectively.
 
+### What happen if you get infected with the coronavirus?
+
+As of the morning of February 27，2020， there were at least 82000 confirmed cases worldwide of the coronavirus and 
+2810 deaths from it.
+
+There are certain people who get infected and have very serious illness among them are health workers.
+It's a very serious inflection in them as they get a higher does than normal people. At the same time, they have no immunity.
+So in general population, it's likely that does of virus that you receive with you are infected is much less
+than the does that a health worker would receive. Health worker having more serious infections.
+So that leaves the elderly and those with comorbidities to really be the ones that we have to make sure.
+are taken care of in hospitals. 
+
+The most concerned are people, who are, first of all, in developing countries, and who don't have access to good medical care
+and may not have access at all to a hospital, should an epidemic occur in their country.
+
+First of all, pulmonary disease exciting as a comorbidity is also important. in general, the elderly are at greater risk.
+especially those over 70, because their immune systems are not as effective as they might have once been and they are more 
+susceptible to inflections.
+
+It's our responsibility to get the information as individuals, so we understand, and make sure that we can contribute in our own way.
+to prevention of major spread.
+
+This is an infection that's coming to humans who have never been exposed to this virus before. They don't have any antibody protections.
+and it's not clear whether their immune system can handle this virus or not. This is a virus that usually finds itself in bats or in other 
+animals, and all of a sudden, it's in humans. Humans just don't have experiences with this virus.
+
+It's clearly understand that airports or any land borders cannot prevent a disease from entering. 
+People in the incubation period can cross the border can enter countries and can then infect others when they become sick.
+So borders are not a means of preventing infections from entering a country by checking temperatures. 
+
+Vaccines are under development right now, there's a lot of research going on. That research requires first that the vaccine be developed.
+then that it be studied for safety and effectiveness in animals, who are challenged with the virus after they are vaccinated,
+and then it must go into human studies.
+
+We will eventually have more and more of these outbreaks. So an emerging inflection today is just a warning.
+of what will happen in the future. We have to make sure that technical collaboration in the world is their to work together to make 
+sure that we can understand these outbreaks when they occur and rapidly provide the information necessary to control them.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+ 
+
+
+ 
+
+
 
 
 
