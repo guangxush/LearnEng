@@ -431,6 +431,51 @@ We will eventually have more and more of these outbreaks. So an emerging inflect
 of what will happen in the future. We have to make sure that technical collaboration in the world is their to work together to make 
 sure that we can understand these outbreaks when they occur and rapidly provide the information necessary to control them.
 
+### What is beauty?
+
+Galton is a brilliant polymath. He's an explorer, an anthropologist, a sociologist, a psychologist and a statistician.
+He presents a new technique by which he can combine photographs and produce composite portraits.
+This technology could be used to characterize different types of people. If he combines photographs of violent criminals,
+he will discover the face of criminality.
+
+- The composite or average faces are typically more attractive than each individual face that contributes to the average.
+has been replicated many times.
+
+- The second factor that contributes to beauty is symmetry. People generally find symmetric faces more attractive than asymmetric ones.
+
+- The third factor that contributes to facial attractiveness is the effect of hormones.
+Men typically find women attractive who have elements of both youth and maturity.
+
+Attractive faces activate parts of our visual cortex in the back of brain, an area called the fusiform gyrus, that is especially tuned 
+to processing faces, and an adjacent area called the lateral occipital complex, that is especially attuned to processing objects.
+In addition, attractive faces activate parts of our reward and pleasure centers in the front and deep in the brain and these 
+include areas that have complicated names, like the ventral striatum, the orbitofrontal cortex and the ventromedial prefrontal cortex.
+
+Our visual brain that is tuned to processing faces, interacts with our pleasure centers to underpin the experiences of beauty.
+Amazingly, when we all engage with beauty, without our knowledge, beauty also engages us.
+Our brains respond to attractive faces, even when we're not thinking about beauty.
+Taken together, these studies suggest that our brain automatically responds to beauty by linking vision and pleasure.
+Our brains seem to reflexively associate beauty and good. And this reflexive association may be the biologic trigger for many
+social effects of beauty.
+
+Attractiveness people receive all kinds of advantages in life. They're regards as intelligent, more trustworthy, they'r given
+higher pay and lesser punishments, even when such judgements are not warranted. Unfortunately, we also have a "disfigured is bad" stereotype.
+
+Beauty is a work in process. The so-called universal attributes of beauty were selected for during almost two millions years
+of the Pleistocene. Life was nasty, brutish and a very long time age. The selection criteria for reproductive success from that time, don't 
+really apply today. And under this relaxed conditions, preferences and trait combinations are free to drift and become more variable.
+Even as we are profoundly affecting our environment, modern medicine and technological innovation is profoundly affecting 
+the very essence of what it means to look beautiful. The universal nature of beauty is changing, even as we changing the universe.
+
+
+
+
+
+
+
+
+
+
 
 
 

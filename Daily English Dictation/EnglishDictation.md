@@ -88,5 +88,9 @@ Happy Christmas to all and to all a good night.
 43. E: Hey, George, you know(um), my friend goes to a psychics(巫师)? G: Really? E: Uh-huh, we should go sometime. G: I'd love to go. Make an appointment.
 
 44. R: Dad, I beat you. Don't you remember the Ray man Spinball? F: Ray, I learned to play in Korea, from Koreans. 
-Do you think some punk kid's gonna actually beat me? R: No, dad, You were trying to win. you were sweating and panting. 
-F: I'm a damn fine actor.
+Do you think some punk kid's gonna actually beat me? R: No, dad, You were trying to win. you were sweating(流汗) and panting. 
+F: I'm a damn(really) fine actor.
+
+45. Hey, is it cold out(outside)?
+
+46. For more than 300 years, the power of French king was absolute, This mean that he had the power to do anythings.
