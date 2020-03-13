@@ -93,4 +93,11 @@ F: I'm a damn(really) fine actor.
 
 45. Hey, is it cold out(outside)?
 
-46. For more than 300 years, the power of French king was absolute, This mean that he had the power to do anythings.
+46. For more than 300 years, the power of French king was absolute(完全的，绝对的), This meant that he had the power to do anythings.
+
+47. What people will do these days for their pets... A wash and a blow-dry(吹干) -- that goes without saying.
+But the demanding(苛刻的，事情多的) dog now wants a limo(豪华轿车) along with other creature comforts(身体需求) at a pet hotel and day spa.
+
+48. Bunkingham Palace officials are staying mum about the murder case, and police keeping many details confidential as they try to identify the vitim and
+and figure out exactly what happened to her.
+

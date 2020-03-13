@@ -468,6 +468,53 @@ Even as we are profoundly affecting our environment, modern medicine and technol
 the very essence of what it means to look beautiful. The universal nature of beauty is changing, even as we changing the universe.
 
 
+### How some kids get tracked towards college and others towards detention?
+
+My first job out of college was an academic researcher at one of the largest juvenile detention centers in the country.
+And everyday I would drive to this building on the West Side of Chicago, go through the security checkpoint and walk down
+these brown, brick hallways as I made my way down to the basement to observe the intake process.
+
+And as I set there on the side of glasses from them, idealistic with a college degree, I wondered to my self: Why didn't schools
+do something more to prevent this from happening?
+
+I've learned that so much of this problem is systemic that often our school system perpetuates the social divide. It make worse
+what it's supported to fix. That's as crazy or controversial as saying that our health care system isn't preventative.
+but somehow profits off of keeping us sick.
+
+If we are serious about helping more kids from across the board to achieve and make it in this world, we are going to have to realized that 
+our gaps in student outcomes are not so much about achievements as much as they are opportunity.
+
+Lower resource schools are dealing with lower quality equipment, obsolete technology and paying teachers way less.
+
+But for who knows how long authorities have turned a blind eye to those who can bribe their way onto the most elite and beautiful
+college campuses. A public education system should not create a wider bottom and more narrow top.
+Some of us can sometimes think that these things aren't that close to home, but they are if we broaden our view, because a leaky
+faucet in our kitchen, broken radiator in our hallway those part of our house that we always say we're going to get to next week.
+they're devaluing our whole property. Why don't we try to reclaim the promise of public education and remember that it's our greatest
+collective responsibility?
+
+And sometime for the student, innovation is just daring to implement common sense. I recently researched these partnerships being built
+between high schools, community colleges and local businesses, who are creating internships in finance, health care and technology.
+for students without "sliver spoon" connections to gain important skills and contribute to the communities that they come from.
+
+It's not: Can school save more of our students? Because I think we have the answer to that and it's yes they can, if we save our school first.
+We can start by caring about the education of others people's children. Cultivating as much talent as possible, getting as many girls as we
+can from all over into science and engineering, as many boys as we can into teaching those are investments for our future.
+
+Our students are like our most valuable resources, and when you put it that way, our teachers are like our modern-day diamond and gold miners,
+hoping to help make them shine. Let's contribute our voices, our votes and our support to giving them the resources that they will need not just to survive.
+but hopefully thrive, allowing all of us to do so as well.
+
+
+
+
+
+
+
+
+  
+ 
+
 
 
 
