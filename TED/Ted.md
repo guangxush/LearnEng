@@ -506,6 +506,58 @@ hoping to help make them shine. Let's contribute our voices, our votes and our s
 but hopefully thrive, allowing all of us to do so as well.
 
 
+### fan girl
+
+Four years ago, a teenage girls changed my life in one conversation. She casually told me that she had met the man she was going to marry.
+And she told me that his name is Harry Styles. And that was the moment that I became obsessed with fangirls
+I didn't know it them but that moment would transform the course of my life and go on to change everything that I thought I knew and being a adult.
+
+A fangirl is a 'girl' or woman who is an extremely or overly enthusiastic fan of someone or something.
+Technically, you can have fangirls of anything, but my specific interest was in fangirls of boy bands.
+Because of their somewhat lethal(致命的) reputation(名气). 
+
+Harry Styles was a member of One Direction. Harry Styles was reputed for his compassionate demeanor and perfect hair.
+I learn this when I read thousand of tweets about him. I learn that he is a sweet cupcake. L learn that he was a perfect angle.
+
+I read hours of fan fiction and I fall down this specific rabbit hole of stories that actually place me as protagonist inside of various
+imagined romances with him. So in one, I tell him that I'm pregnant with his child. In another, we meat in hospital where we're both fighting cancer.
+And in another, we fall so deeply in love that we become fugitives who kill people. 
+
+But then, something unthinkable happens, One directions, the biggest boy band on the planet, loses a member. Zayn Malik quits the band,
+and the internet explodes with feels. I read tweets as these girls describe the physical pain of this loss, how they can't eat or sleep or walk.
+I read them describe how much Zayn had meat to them. And I watch videos of 10-year-old girls crying.
+Then I watch as mainstream news outlets cover the story. I read them describe these 'young banshees'. I read one journalist say: It's commonly known 
+fact since the age of Beatles that there is nothing scarier in this world than a group of excited teenage girls.
+
+Then I asked myself a questions I've never consider in my life. Why is it that the image of young girls screaming their lungs out with excitement for a pop star
+is considered crazy, psycho, scary, a bit much? But the image of young boys screaming their lungs out for a footballer is perfectly normal?
+As soon as I realized this double standard, I realized that all of my curiosity about fangirls has been sparked by exactly the same judgements.
+I, too, has suspected that they were a bit crazy. I'd looked at images of girls screaming for the Beatles and the world had come to mind was not "excitement", was hysteria.
+Hysteria was considered to be a legitimate female mental disorder that could be diagnosed by doctors if women displayed excessive emotion or difficult behavior.
+
+I decide to redeclare my obsession. Because I am no longer just obsessed with fangirls. Now I'am obsessed with the way that the world talks about fangirls.
+and the way the world looks at young, female enthusiasm. I want to know, if girls grow up in a world where words like 'crazy', 'psycho', and 'hysterical' are casually used to describe 
+female enthusiasm, then how does that shape the way that those girls get to see themselves? And if girls grow up in a world that tells them
+that they are designed just a bit crazier than the boys, then it's that a little bit like telling them that they are born less
+capable of rationality than men, less capable of reason and unworthy of the same intellectual respect as their brothers.
+
+What if we rethink the judgements we've been conditioned to feel when we see young women screaming their lungs out with excitement?
+What if we decided to rethink the words we use to described that joy, and what if we didn't allow ourselves to diminish girls.
+with words that undermine their intelligence, their interests and their capability?
+You all just sounded stunning and as sane and as intelligent and as dignified as when you walked in this room.
+
+
+
+ 
+
+
+
+
+
+
+
+
+
 
 
 

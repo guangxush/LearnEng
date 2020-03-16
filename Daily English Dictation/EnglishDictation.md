@@ -98,6 +98,9 @@ F: I'm a damn(really) fine actor.
 47. What people will do these days for their pets... A wash and a blow-dry(吹干) -- that goes without saying.
 But the demanding(苛刻的，事情多的) dog now wants a limo(豪华轿车) along with other creature comforts(身体需求) at a pet hotel and day spa.
 
-48. Bunkingham Palace officials are staying mum about the murder case, and police keeping many details confidential as they try to identify the vitim and
+48. Bunkingham Palace officials are staying mum(don't talk about沉默) about the murder case, and police keeping many details confidential(机密的) as they try to identify the victim and
 and figure out exactly what happened to her.
 
+49. January 10th, 1863， "All aboard, but mind the gap" as the world's first underground passenger railway opens the London.
+
+50. And Why do you wanna go there? I know it's had a bad press recently, but it's the place that's taken my fancy.
