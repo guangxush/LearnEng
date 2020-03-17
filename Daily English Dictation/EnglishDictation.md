@@ -104,3 +104,12 @@ and figure out exactly what happened to her.
 49. January 10th, 1863， "All aboard, but mind the gap" as the world's first underground passenger railway opens the London.
 
 50. And Why do you wanna go there? I know it's had a bad press recently, but it's the place that's taken my fancy.
+
+51. There's people running and walking their dogs and having brunch(早午饭) on the patios(露台is similar to a porch or a deck).
+
+52. Martin Luther kings, Jr's rise as a civil right leader at the 1955, when he spearheaded the drive to desegregate public buses in Montgoery, Alabama.
+
+
+
+
+

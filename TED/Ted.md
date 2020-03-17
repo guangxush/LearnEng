@@ -547,6 +547,42 @@ with words that undermine their intelligence, their interests and their capabili
 You all just sounded stunning and as sane and as intelligent and as dignified as when you walked in this room.
 
 
+### Signs you are wasting your life.
+
+Life is precise and we only get one shot at it. Nevertheless, a lot of people spend their life, merely passing the time rather than making the most of the shot time they have left.
+Young people are especially guilty of this -- we are springtime of our lives. If ever there was a time to plant a tree, it's now.
+Yet most of us don't do that. Young people spend their time parting, eating junk food and taking vacations rather than reading, building new skill sets, building healthy habits and investing themselves.
+
+Are you merely passing the time instead of making the most of your life? Here are some ways to tell.
+- You don't get out of bed quickly upon waking. 
+People who have a driving purpose in their life don't spend time lounging around on their phone in bed.
+Waking up is no big deal, just start of another random day. To someone with a purpose, waking up every morning is a refreshing welcome to another day of hard yet meaningful work.
+
+- You spend more than one hour or two a day on aimless activities. Some activities are inherently aimless, done only because they are pleasing in the moment. 
+Some activities like this are: Spending time on social media, watching TV or movie and playing video games.
+These kind of activities can be an important part of decompressing. Anymore than that, though, and you are going beyond 'decompressing' into 'wasting your life'.
+People with a purpose don't spend too long doing these sorts of things, because they are aware that every hour sucked away by aimless activities.
+The sought of wasting that much of time make them sick.
+
+- You don't feel ready for deb at the end of each day. People whose days are filled with purposeful activities. 
+feel tired at the end of the day. Whether it's mental work or physical work, purposeful activity uses up all of your energy
+and leaves of you ready to go to bed each day. When you aren't making the most of your life, on the other hand, you're not tired 
+at the end of the day. You are, quite literally, not making the most of your energy.
+
+- You spend more of your time planning than doing. If you spend more of your time daydreaming, planning or thinking about the future,
+that you do working to bring about that future. You are not making the most of your life. People who make something of themselves, pick
+a goal for the future and then work hard to make that goal happen.
+
+- You worry what others think of you. High achievers are too busy getting things done to worry others think of them. High achievers 
+may worry about what people who matter think of them, but they don't worry about what their friends, family or pop culture thinks.
+They are too busy getting things done. If you routinely worry about what your friends, family, peers or pop culture thinks of you,
+you may be letting your life slip by.
+
+Instead of doing what others approve of, finding a guide purpose that you can be true to even when world turns against you.
+
+
+
+ 
 
  
 
