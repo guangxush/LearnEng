@@ -107,7 +107,11 @@ and figure out exactly what happened to her.
 
 51. There's people running and walking their dogs and having brunch(早午饭) on the patios(露台is similar to a porch or a deck).
 
-52. Martin Luther kings, Jr's rise as a civil right leader at the 1955, when he spearheaded the drive to desegregate public buses in Montgoery, Alabama.
+52. Martin Luther King, Jr's rise as a civil right leader at the 1955, when he spearheaded(率先) the drive(push) to desegregate(分离) public buses in Montgomery, Alabama.
+
+53. Anti-piracy(反盗版) legislation(法律) under consideration(考虑) in Washington, has some website is a tizzy(头晕). Wikipedia, Boing Boing and Reddit say they'll have none of it and are blacking out(禁止发行) their sites on Wednesday.
+
+54. There're usually about 3 sharks on people in around Asturallin all year, 22 the countries had 3 talked already in journey or even finished year.
 
 
 

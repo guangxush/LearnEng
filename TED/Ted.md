@@ -581,6 +581,33 @@ you may be letting your life slip by.
 Instead of doing what others approve of, finding a guide purpose that you can be true to even when world turns against you.
 
 
+### This changed my view of death
+
+I've been doing some thinking. I'm going to kill my dad. My dad has frontotemporal lobe dementia. It's a confusing disease that hits people 
+in their 50s or 60s. It can completely change someone's personality, making them paranoid and even violent. My dad's been sick for a decade,
+but three years ago he got really sick, and we had to move him out his house. The house that I grew up in, that house that he build with his 
+own hands. My strapping, cool dad with the falsetoo singing voice had to move into a facility for round-the-clock care when he is just 65.
+
+At first, my mom, my sister and I made a mistake of putting him in a regular nursing home. It was really pretty. It had plush carpet
+and afternoon art classes and a Dog named Diane. But then I got a phone call. "Ms. Malone, we've arrested your father." "What?" "Well, he 
+threatened everybody with cutlery. And then he yanked the curtains off the wall, and then he tried to throw plants out the window." And then 
+,well, he pulled all the old ladies out of their wheelchairs." 
+
+After when he kicked off their, we bounced him between a bunch of state-run facilities before finding a treatment center specifically 
+for people with dementia. At first, he kind of liked it, but over time his health declined and one day I walked in and finding him sitting
+hunched over on the ground wearing a onesie -- those kinds of outfits that zip in the back. I watched him for about an hour as he yanked at it,
+trying to find a way out of this thing. And it's supported to be practical, but to me it looked like a straight jacket. And so I ran out. 
+I left him there. I sat in my trunk, his old trunk, hunched over, this really deep guttural cry coming out of the pit of my belly.
+I just couldn't believe that my father, the Adonis of my youth, my really dear friend, would think that this kind of life was worth living anymore.
+We're programmed to prioritize productivity. So when a person is no longer productive in the way we expect him to be, the way that he expects himself to be. 
+What dose that life have left? That day in the truck, all I could imagine was that my dad was being tortured and his body was vessel of that torture.
+I've got to get him out of that body. 
+
+The truth is we talk about his death a lot. When will it happen? What will it be like? But I wish that we would have talked about death when we
+were health. What does my best death look like? Sometimes people hang on when they are worried about loved ones. Just tell them you're safe, and it's OK
+when you're ready. And I memorized his hands, feeling so grateful that his spirit was still attached to his body. And In that moment, I realized I'm not
+responsible for this person. I'm not his doctor and maybe the best way to help him and me is to resume our roles as father and daughter.  
+
 
  
 

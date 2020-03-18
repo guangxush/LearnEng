@@ -2,7 +2,6 @@
 <project version="4">
   <component name="ChangeListManager">
     <list default="true" id="b9075104-e337-4ee5-be9f-3f8f1cd910b5" name="Default Changelist" comment="">
-      <change beforePath="$PROJECT_DIR$/.idea/workspace.xml" beforeDir="false" afterPath="$PROJECT_DIR$/.idea/workspace.xml" afterDir="false" />
       <change beforePath="$PROJECT_DIR$/Daily English Dictation/EnglishDictation.md" beforeDir="false" afterPath="$PROJECT_DIR$/Daily English Dictation/EnglishDictation.md" afterDir="false" />
       <change beforePath="$PROJECT_DIR$/TED/Ted.md" beforeDir="false" afterPath="$PROJECT_DIR$/TED/Ted.md" afterDir="false" />
     </list>
@@ -33,8 +32,8 @@
         <entry file="file://$PROJECT_DIR$/Daily English Dictation/EnglishDictation.md">
           <provider selected="true" editor-type-id="split-provider[text-editor;markdown-preview-editor]">
             <state split_layout="SPLIT">
-              <first_editor relative-caret-position="168">
-                <caret line="104" lean-forward="true" selection-start-line="104" selection-end-line="104" />
+              <first_editor relative-caret-position="275">
+                <caret line="113" column="118" selection-start-line="113" selection-start-column="116" selection-end-line="113" selection-end-column="118" />
               </first_editor>
               <second_editor />
             </state>
@@ -45,8 +44,8 @@
         <entry file="file://$PROJECT_DIR$/TED/Ted.md">
           <provider selected="true" editor-type-id="split-provider[text-editor;markdown-preview-editor]">
             <state split_layout="SPLIT">
-              <first_editor relative-caret-position="476">
-                <caret line="549" column="36" selection-start-line="549" selection-start-column="36" selection-end-line="549" selection-end-column="36" />
+              <first_editor relative-caret-position="411">
+                <caret line="588" column="19" selection-start-line="588" selection-start-column="19" selection-end-line="588" selection-end-column="19" />
               </first_editor>
               <second_editor />
             </state>
@@ -150,12 +149,12 @@
       <workItem from="1583973955905" duration="5046000" />
       <workItem from="1584059845166" duration="4952000" />
       <workItem from="1584319399874" duration="5286000" />
-      <workItem from="1584405410772" duration="4786000" />
+      <workItem from="1584405410772" duration="10910000" />
     </task>
     <servers />
   </component>
   <component name="TimeTrackingManager">
-    <option name="totallyTimeSpent" value="93740000" />
+    <option name="totallyTimeSpent" value="99864000" />
   </component>
   <component name="ToolWindowManager">
     <frame x="0" y="23" width="1680" height="950" extended-state="6" />
@@ -209,8 +208,8 @@
     <entry file="file://$PROJECT_DIR$/TED/Ted.md">
       <provider selected="true" editor-type-id="split-provider[text-editor;markdown-preview-editor]">
         <state split_layout="SPLIT">
-          <first_editor relative-caret-position="476">
-            <caret line="549" column="36" selection-start-line="549" selection-start-column="36" selection-end-line="549" selection-end-column="36" />
+          <first_editor relative-caret-position="411">
+            <caret line="588" column="19" selection-start-line="588" selection-start-column="19" selection-end-line="588" selection-end-column="19" />
           </first_editor>
           <second_editor />
         </state>
@@ -219,8 +218,8 @@
     <entry file="file://$PROJECT_DIR$/Daily English Dictation/EnglishDictation.md">
       <provider selected="true" editor-type-id="split-provider[text-editor;markdown-preview-editor]">
         <state split_layout="SPLIT">
-          <first_editor relative-caret-position="168">
-            <caret line="104" lean-forward="true" selection-start-line="104" selection-end-line="104" />
+          <first_editor relative-caret-position="275">
+            <caret line="113" column="118" selection-start-line="113" selection-start-column="116" selection-end-line="113" selection-end-column="118" />
           </first_editor>
           <second_editor />
         </state>
