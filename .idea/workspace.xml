@@ -1,10 +1,7 @@
 <?xml version="1.0" encoding="UTF-8"?>
 <project version="4">
   <component name="ChangeListManager">
-    <list default="true" id="b9075104-e337-4ee5-be9f-3f8f1cd910b5" name="Default Changelist" comment="">
-      <change beforePath="$PROJECT_DIR$/Daily English Dictation/EnglishDictation.md" beforeDir="false" afterPath="$PROJECT_DIR$/Daily English Dictation/EnglishDictation.md" afterDir="false" />
-      <change beforePath="$PROJECT_DIR$/TED/Ted.md" beforeDir="false" afterPath="$PROJECT_DIR$/TED/Ted.md" afterDir="false" />
-    </list>
+    <list default="true" id="b9075104-e337-4ee5-be9f-3f8f1cd910b5" name="Default Changelist" comment="" />
     <option name="EXCLUDED_CONVERTED_TO_IGNORED" value="true" />
     <option name="SHOW_DIALOG" value="false" />
     <option name="HIGHLIGHT_CONFLICTS" value="true" />
@@ -32,8 +29,8 @@
         <entry file="file://$PROJECT_DIR$/Daily English Dictation/EnglishDictation.md">
           <provider selected="true" editor-type-id="split-provider[text-editor;markdown-preview-editor]">
             <state split_layout="SPLIT">
-              <first_editor relative-caret-position="275">
-                <caret line="113" column="118" selection-start-line="113" selection-start-column="116" selection-end-line="113" selection-end-column="118" />
+              <first_editor relative-caret-position="147">
+                <caret line="107" column="117" selection-start-line="107" selection-start-column="117" selection-end-line="107" selection-end-column="117" />
               </first_editor>
               <second_editor />
             </state>
@@ -149,12 +146,12 @@
       <workItem from="1583973955905" duration="5046000" />
       <workItem from="1584059845166" duration="4952000" />
       <workItem from="1584319399874" duration="5286000" />
-      <workItem from="1584405410772" duration="10910000" />
+      <workItem from="1584405410772" duration="11573000" />
     </task>
     <servers />
   </component>
   <component name="TimeTrackingManager">
-    <option name="totallyTimeSpent" value="99864000" />
+    <option name="totallyTimeSpent" value="100527000" />
   </component>
   <component name="ToolWindowManager">
     <frame x="0" y="23" width="1680" height="950" extended-state="6" />
@@ -218,8 +215,8 @@
     <entry file="file://$PROJECT_DIR$/Daily English Dictation/EnglishDictation.md">
       <provider selected="true" editor-type-id="split-provider[text-editor;markdown-preview-editor]">
         <state split_layout="SPLIT">
-          <first_editor relative-caret-position="275">
-            <caret line="113" column="118" selection-start-line="113" selection-start-column="116" selection-end-line="113" selection-end-column="118" />
+          <first_editor relative-caret-position="147">
+            <caret line="107" column="117" selection-start-line="107" selection-start-column="117" selection-end-line="107" selection-end-column="117" />
           </first_editor>
           <second_editor />
         </state>
