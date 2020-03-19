@@ -1,6 +1,6 @@
 # Learn English
 
 
-## [TED](./TED/README.md)
+## [TED](./TED/)
 
-## [Daily English Dictation](./Dictation/README.md)
+## [Daily English Dictation](./Dictation/)
