@@ -111,9 +111,13 @@ and figure out exactly what happened to her.
 
 53. Anti-piracy(反盗版) legislation(法律) under consideration(考虑) in Washington, has some website is a tizzy(头晕). Wikipedia, Boing Boing and Reddit say they'll have none of it and are blacking out(禁止发行) their sites on Wednesday.
 
-54. There're usually about 3 sharks on people in around Asturallin all year, 22 the countries had 3 talked already in journey or even finished year.
+54. There're usually about 3 shark attacks on people in (Australia) and around Australia all year. 
+In 2012 the countries had seen 3 attacks already and January isn't even finished, yet.
 
+55. A Georgia mother says she was arrested(被捕) for allowing her 10-year-old son to get a tattoo(纹身) in memory of his late(dead) brother. 
+We hoped that they could find something that would sustain(维持) them through that loss, but this is not the way.
 
+56. You sold us a hair with a cake around it.
 
 
 

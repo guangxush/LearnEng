@@ -608,11 +608,50 @@ were health. What does my best death look like? Sometimes people hang on when th
 when you're ready. And I memorized his hands, feeling so grateful that his spirit was still attached to his body. And In that moment, I realized I'm not
 responsible for this person. I'm not his doctor and maybe the best way to help him and me is to resume our roles as father and daughter.  
 
+### It's Time To Let Go Of Your Best Friend.
 
+You are on-going help, sharing and liking has helped Psyh2go to continue our mission to make psychology accessible to everyone.
+
+Are you lucky enough to have a best friend or at least have known a deep trusting friendship? Finding a true and loving friendship, the one makes you feel happy,
+safe and security, is so rare and special that when we do, we can't help but wish that it would last forever. Having friends like this can be the greatest pleasures in life.
+So it can be devastating for us to lose them. Saying "Good Bye" to a best friend is heart breaking. But trying to savage a friendship that's not meant to last, does more harm than good.
+
+Loving someone means doing what's best for them, even when it hurts you. With that said, here are 6 Signs That Can Help You realized 
+That It's Time To Let Go Of Your Best Friend.
+
+- You are second guessing your friendship. Though you don't want to admin it, you are starting to second guessing the friendship. Questioning what the point
+of the friendship is. You're both changed so much that almost as if you're completely different people now. You no longer have anything in common and don't know 
+what to talk about. Conversions that were once easy going and fun, now feel constantly awkward and forced. 
+
+- You don't communicate anymore. Another common reason why friendship end, is because people tend to grow apart over time. You and your best friend have both gone
+on your separate ways, but you still holding on and pretending like you have it. You still see them as your best friend even if 
+you haven't kept in touch talked to them in ages. You barely see each other anymore, and neither of you make any effect to get together.
+
+- You want different things. We all have plans and goals that we want to achieve in our lives and sometimes pursuing them can mean to let certain people go. 
+It's hard when you and your best friend want different, very different things for yourselves and staying in the friendships means sacrificing one or the other's hopes or dreams.
+Asking someone to give that up for you will only make them resent you for it in the end. 
+
+- You've found other friends. You may not realise that you and your best friend are already drifting apart, until you make new close friends. When being with people, other than your bestie
+feels more compatible and comfortable, that already a clear sign that it's time to let go. Or at least accept that friendship isn't what it was and now the status of "BEST FRIEND" drop.
+That doesn't mean the new friends will treat you better or that you like them more than your best friend.
+
+- They've broken your trust. This is a particularly a sad reason for ending a friendship. Unfortunately, it does happen. Trust is, after all, the foundation of any health relationship.
+Without it, things can never move forward or get between you and your best friends. Although repeated forgiveness and moving on is an option the best thing you can do at that point is to start
+over and find peace with someone else.
+
+- You're the only one holding on. Finally, if you that the effect to keep the friendship alive is virtually one sided with you being the load bearer, then it might to be time to end things with this
+person. As much as it hurts to be rejected, especially by someone you've considered to be your closest and dearest friend. Trying to force 
+them to change their mind is still wrong. If they don't want you in their life anymore, spare yourself the indignity and leave. Asking for answers and 
+get closure is an option. Anymore than that thought is not recommended. 
+
+
+Generally speaking, it's not good for your self-esteem and mental health to stay with someone who clearly doesn't want you.
+No matter how you look at it, letting go of someone you love is the one of the most difficult and painful decisions you're ever going to 
+make in life. You may experience a cycle of grieving with stages of anger, denial and sadness before accepting it. 
+
+Some things are just meant to come apart and that's okay. People are meant to change and mature. Moving forward in life
+means learning and growing from your past not being held back by it.    
  
-
- 
-
 
 
 
