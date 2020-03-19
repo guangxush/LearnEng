@@ -3,4 +3,4 @@
 
 ## [TED](./TED/README.md)
 
-## [Daily English Dictation](./Daily English Dictation/README.md)
+## [Daily English Dictation](./Dictation/README.md)
