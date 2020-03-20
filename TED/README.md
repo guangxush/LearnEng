@@ -652,9 +652,50 @@ make in life. You may experience a cycle of grieving with stages of anger, denia
 Some things are just meant to come apart and that's okay. People are meant to change and mature. Moving forward in life
 means learning and growing from your past not being held back by it.    
  
+### why you still single?
 
+Do you feel everyone in your life is already in a relationship expect you? Do you find yourself wondering why you still haven't found that special someone?
+despite being such a good catch. You may be attractive, successful, charming or financially well-off. However, you still struggle to settle down.
+So what are the circumstances in your life that might be keeping you from finding the right person for you. Here are six probable reasons why you still single:
 
+- You don't have a sense of identity, do you find it hard to find a partner or make your relationships last, it maybe because you don't really know yourself well enough.
+If you still unsure of who you are or what you want in your life. It's will be hard to know what you want in your partner? Do you search for love as a way to fill the emptiness.
+you feel inside of yourself mistakenly believing that being in a relationship will make you whole. The truth is you can be in a relationship and still feel lonely that emptiness
+you're struggling with is likely due to being disconnected and isolated from yourself not from others. Without a secure sense of identity. It would be extremely difficult to form 
+a healthy relationship with someone else. Do you feel this is the case for you. 
 
+- You have unrealistic standards knowing your own worth and respecting yourself enough not to settle for less than what you deserve is definitely a good thing. 
+However you should not be careful not to set the bar too high for anyone to climb, are you asking too much from your potential partners? if you've been searching for that special
+someone for a long time and no one even comes close. There's possibility that your idea of a perfect partner simple doesn't exist.
+No body is going to have all the same interest and passions as you or immediately know what to do or how to act around you, movies and books can often 
+give us unrealistic expectations about love and romance seeing all those perfect relationships on social media may also make it hard for you to settle down. 
+ 
+- You are still heart broken. Are you thinking of dating someone new even though you're still hung up on your ex, you might think that getting over someone means finding a replacement 
+for them, but rushing into things is never a good idea. This is why rebound relationships don't often work out no matter how much time has passed. Whether it's been weeks months or even years.
+You shouldn't be looking for a new partner yet. If you're still nursing a broken heart from your last failed romance instead allow yourself all the time you need to heal and truly let person go
+It may do some good to get comfortable with being single for a while before you put your heart on the line again. After all recovering from a breakup can lead to tremendous self growth and 
+improved quality of life. 
+
+- You are afraid of commitment according to Robert's famous triarchic theory of love, commitments and intimacy are fundamental elements of a lasting 
+relationships along with passion. do you only want the thrill and excitement of new love and don't think you're ready to be in a serious 
+relationship quiet yet. It's ok be afraid of commitment. But it's better to understand why to be vulnerable and open yourself up to others or is it because
+you don't want to feel trapped in a relationship with someone else, are you afraid of rejection and abandonment. So you leave to deny other people a chance to leave you or
+do you simply not believe that a relationship is meant to last, until you figure yourself out first and understand why it is you're so afraid of commitment. you'll only continue to drive
+people away and never move forward from the courtship stage of dating. 
+
+- You don't have time to date another reason why you might be struggling in your search for romance is that you're simple too busy to be dating right now whether 
+it's your career your academics or your personal life taking up a lot of your time. It can be hard for you to find someone when you're preoccupied with so many other things at the moment.
+It's perfectly fine if being in a relationship is not one of your priorities right now especially if you're still young. Nonetheless if you are really serious about wanting to settle down 
+with someone already. Then you should make a few adjustments to your schedule. 
+
+- Finally, you're single by choice, do you value your independence and don't want to be tied down yet. Do you want to focus on 
+other aspects of your life first, maybe you still sorting out your own issues and trying to navigate your way through life.
+Whatever your reason maybe, It's good to be honest with yourself about what it is you want and don't want. You don't need a relationship to be happy, take everything at your own pace.
+At the end of the day a relationship is a want not a need and you should want it for the right reasons, if you want someone to save you or 
+take care of you or you not happy with yourself in your life rushing into a relationship is not the answer. On the other hand if you're too busy with your career still pining over someone else
+or dating too aggressively, you won't attract the right kind of people, once you understand why it is you're still single and what you can do about it only then can you start to connect 
+better with other people, this makes it easier for you to find someone who's good match for you, fall in love with them and make 
+your relationship last. 
 
 
 

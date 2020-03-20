@@ -117,7 +117,13 @@ In 2012 the countries had seen 3 attacks already and January isn't even finished
 55. A Georgia mother says she was arrested(被捕) for allowing her 10-year-old son to get a tattoo(纹身) in memory of his late(dead) brother. 
 We hoped that they could find something that would sustain(维持) them through that loss, but this is not the way.
 
-56. You sold us a hair with a cake around it.
+56. You sold us a hair with a cake around(on) it.
+
+57. It's surely in the running for one of the most expensive pile-ups(crashes accidents) in highway history. These crumpled(压扁的) Ferraris were among eight involved in the crash.
+The airbags(安全气囊) may have saved those(people) inside (the cars)from serious injury(伤害), but oh~ what damage may have been done to bruise(挫伤) the spirits(egos精神) of these enthusiasts(发烧友) attached to their sleek(光滑的) sports cars.
+
+58. Hi, love one, I'm sorry to told that the trush damage them. 
+All right? I will give a change to visit.
 
 
 
