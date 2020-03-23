@@ -122,8 +122,14 @@ We hoped that they could find something that would sustain(维持) them through 
 57. It's surely in the running for one of the most expensive pile-ups(crashes accidents) in highway history. These crumpled(压扁的) Ferraris were among eight involved in the crash.
 The airbags(安全气囊) may have saved those(people) inside (the cars)from serious injury(伤害), but oh~ what damage may have been done to bruise(挫伤) the spirits(egos精神) of these enthusiasts(发烧友) attached to their sleek(光滑的) sports cars.
 
-58. Hi, love one, I'm sorry to told that the trush damage them. 
-All right? I will give a change to visit.
+58. Hey, Lilith, sorry for the holdup(delay), but Frasier should be back form the dentist any minute. 
+Oh, all right? That'll give us a chance to visit.
+
+59. This iceberg here, there's outcroppings(漏头) under the water, and uh, sea ice, iceberg ice is very hard, so it's almost like,
+it could be almost like a can opener(开罐器). And when probably the Titanic went by it. It just sliced a hole in it like you would with a manual can opener.
+
+60. It's snowing at a beautiful winter, nowhere at freeing at a post by eight dogs in the truble, and really I doesn't much more front dnish.
+ 
 
 
 
