@@ -1,5 +1,122 @@
 ## TED
 
+### How does the stock run?
+
+In the 1600s, the Dutch East India Company employed hundreds of ships to trade gold, porcelain, spices and silks around the globe.
+But running this massive operation wasn't cheap. In order to fund their expensive voyages, the company turned to private citizens-
+individuals who could invest money to support the trip in exchange for a share of the ship's profits. 
+This practice allowed the company to afford even grander voyages, increasing profits for both themselves and their savvy investors.
+Selling these shares in coffee houses and shipping ports across the continent,
+the Dutch East India Company unknowingly invented the world's first stock market.
+Since then, companies have been collecting funds from willing investors to support all kinds of business.
+And today, the stock market has schools, careers, and even whole television channels dedicated to understanding it.
+
+But the modern stock market is significantly more complicated 
+than its original incarnation. So how do companies and investors use the market today?
+Let's imagine a new coffee company that decides to launch on the market. 
+First, the company will advertise itself to big investors. If they think the company is a good idea,
+they get the first crack at investing and then sponsor the company's initial public offering, or IPO.
+This launches the company onto the official public market, where any company or individual who believes 
+the business could be profitable might by stock. Buying stocks makes those investors partial owners in the business.
+Their investment helps the company to grow, and it becomes more successful, more buyers may see potential and start buying stocks.
+As demand for those stocks increases, so does their price, increasing the cost for prospective buyers, 
+and raising the value of the company's stocks people already own. 
+For the company, this increased interest helps fund new initiatives, and also boosts its overall market value,
+by showing how many people are willing to invest in their idea. However, if for some reason a company starts to seem less profitable, 
+the reverse can also happen. If investors think their stock value is going to decline, 
+they'll sell their stocks with the hopes of making a profit before the company loses more value.
+As stocks are sold and demand for the stock goes down, the stocks price falls, 
+and with it, the company's market value. 
+
+These can leave investors with big losses - unless the company starts to look profitable again.
+this see-saw of supply and demand is influenced by many factors. Companies are under the unavoidable influence of market forces
+such as the fluctuating price of materials, changes in production technology, and the shifting costs of labor. 
+Investors may be worried about changes in leadership, bad publicity, or larger factors like new laws and trade policies.
+And of course, plenty of investors are simply ready to sell valuable stocks and pursue personal interests.
+All these variables cause day-to-day noise in the marker, which can make companies appear more or less successful. 
+And-in the stock market, appearing to lose value often leads to losing investors, and in turn, losing actual value.
+Human confidence in the market has the power to trigger everything from economic booms to financial crises.
+And this difficult-to-track variable is why most professional promote reliable long term investing over trying to make
+quick cash.  
+
+However, experts are constantly building tools in efforts increase their chances of success in this highly unpredictable system.
+But the stock market is not just for the rich and powerful. With the dawn of the Internet, everyday investors can buy stocks 
+in many of the exact same ways a large investor would. And as more people educate themselves about this complex system.
+they too can trade stocks, support the businesses they believe in, and pursue their financial goals. 
+The first step is getting invested.
+
+### Why did you struggled with making meaningful progress towards your goals?
+
+Let's start with a story about this YouTube channel. 
+In October of 2016, I posted my first YouTube video, I didn't show my face, used the pseudonym rather than my real name,
+and I didn't feel all that comfortable actually doing it. After all, I used to be somewhat anti-social media and very private.
+Regardless, I committed to a schedule and I stuck to it.
+Every Saturday at 8AM, I would post a new video no matter what. 
+A few weeks later, I brought new animation software, didn't know how to use it, 
+and found myself staying up all Friday night and into Saturday until 7AM.
+before I got the video finished and uploaded. I wasn't gonna ship an upload, no matter what, 
+while growing my channel was always a goal, it's difficult to realistically assign a number to,
+something that is so arbitrary as subscriber count. So I didn't. I just focus on my commitment.
+Week after week, month after month, I posted a new video.
+Five months later, in March of 2017, we hit 100000 subscribers.
+By month 11, in September of 2017, we hit 200000. Fast forward to 2018, and it became much more than just a YouTube channel
+and evolved into a full-fledged business and my main source of income.
+Now, imagine if I took a more traditional approach to goal setting.
+Let's say hitting 100000 subscribers in 5 months wasn't a coincidence but
+actually my goal from the start. I'd start off excited and hopeful but at month four,
+I'd likely be discouraged that I still had fewer than 30000 subscribers.
+In fact, I may give up at that point, or at least be less disciplined with my weekly schedule.
+I could have missed the opportunity of continuing to post and having a sleep video go viral that would add over.
+60000 subscribers in just one month. It was non-linear growth and there was no way for me to see it coming.
+When setting goals, most of us think of a specific desired outcome, set an arbitrary time frame, and hope for the best.
+
+I wanna get to 10% body fat before summer. I wanna make 100000 before the end of the year.
+Then we think of the steps required to get there, and lazily half-reverse engineer the plan of attack.
+Best case scenario, we don't reach our goals. Worst case scenario, the goal and timeline act as perverse incentives.
+with unintended negative effects. By rushing to lose body fat before summer, you may resort to unhealthy weight loss pills or other radical means
+that my come with long term health tradeoffs. By rushing to make 100000 above all else, you may compromise in your morals,
+bend the rules and end up in legal trouble, or sacrifice long term sustainable growth for a quick buck that burns hot hut dies fast.
+Instead of focusing on a concrete end goal, focus your attention and energy on the habits, practises and routines that will 
+facilitate your desired outcomes. There aren't shortcuts in life. Just those that are willing to put in the work, consistently, 
+and those who aren't. Rather than 10% body fat by summertime, aim to life weights 5 times per week, eat at a 500 calorie deficit, and do 2 days of HIIT.
+Whether you hit 10% body fat by summertime isn't all that important.
+
+You've now set the foundation for a healthy habit that's going to give you a killer physique long term,
+whether this summer or next. Rather than prioritizing a 100000 before the end of the year, focus on putting in 10 hours every week into your side hustle.
+Focus on marketing, revenue generation, and recruitment and see where you end up in 12 months time.
+Best case, you'll build a respectable brand that grows and exceeds your expectations.
+Worst case, you'll learn business fundamentals that will position you well for your next entrepreneurial endeavor. 
+This approach has a few distinct advantages. 
+
+First, this maximizes the odds that you actually achieve your desired level of success.
+After all, successful people don't get there by relying on temporary bursts of motivation and inspiration.
+They get there by consistently showing up, day after day, regardless of how they feel and putting in the work.
+
+
+Second, even if you fail in achieving your goals, chances are you'll have made significant process and learned something meaningful along the way.
+After you have your scheduled practice in place, make sure you set up a system to track your progress. Tracking your process has two main
+benefits. First, tracking serves as a method of feedback. You instantly gain greater clarity of what is and is not working.
+You'll be better equipped in knowing when to keep pushing, and when to change gears and course correct. Second, tracking functions as a motivator.
+Seeing previous progress, even if it's slow but steady, can often be the difference between you sticking to your commitment for the day and falling through.
+Weight training is a scheduled habit that is important in facilitating the outcomes I desire. 
+
+I use two method to track the habit.
+- I use the app Strides on my phone to mark the completion of certain habits, I input five days per week of lifting as my target,
+and this app helps to keep me accountable.
+- I track workouts on a custom Google Sheets template that I created. During every workout, I update the spreadsheet, with the number
+of sets and reps of each exercise. Including the RPE, a measurement of how difficult the set was.
+By tracking these variables, I'm better able to course correct and optimally program my upcoming workouts.
+This isn't something you should be doing daily, as emotional swings may convince you to quit or compromise on your goals.
+Rather, your reviews should occur every 1-3 months in most cases. For you study strategies, are you satisfied with your grades?
+Are you practicing evidence-based study strategies and staying focused when you should be?
+
+Have you listened to constructive criticism and feedback from your audience? I found the habit of journaling helpful when it comes to reflection and review.
+By writing down your thoughts, rather than simply thinking them. they are solidified with greater clarity. Be clear about what you are going to continue doing.
+and what methods or systems you'll experiment with changing. This is key. Fear is an insidious that can color our perceptions and hijack our plans.
+This practice, whereby you explicitly write out your fears, the ways to prevent them and how to repair them, is a tremendously useful exercise in keeping
+your fears in check.
+
+
 ### Slow your time
 
 If you are luck enough to decide to pace that you want to travel through your life, it's a privilege.
@@ -697,50 +814,7 @@ or dating too aggressively, you won't attract the right kind of people, once you
 better with other people, this makes it easier for you to find someone who's good match for you, fall in love with them and make 
 your relationship last. 
 
-### 
 
-In the 1600s, the Dutch East India Company employed hundreds of ships to trade gold, porcelain, spices and silks around the globe.
-But running this massive operation wasn't cheap. In order to fund their expensive voyages, the company turned to private citizens-
-individuals who could invest money to support the trip in exchange for a share of the ship's profits. 
-This practice allowed the company to afford even grander voyages, increasing profits for both themselves and their savvy investors.
-Selling these shares in coffee houses and shipping ports across the continent,
-the Dutch East India Company unknowingly invented the world's first stock market.
-Since then, companies have been collecting funds from willing investors to support all kinds of business.
-And today, the stock market has schools, careers, and even whole television channels dedicated to understanding it.
-
-But the modern stock market is significantly more complicated 
-than its original incarnation. So how do companies and investors use the market today?
-Let's imagine a new coffee company that decides to launch on the market. 
-First, the company will advertise itself to big investors. If they think the company is a good idea,
-they get the first crack at investing and then sponsor the company's initial public offering, or IPO.
-This launches the company onto the official public market, where any company or individual who believes 
-the business could be profitable might by stock. Buying stocks makes those investors partial owners in the business.
-Their investment helps the company to grow, and it becomes more successful, more buyers may see potential and start buying stocks.
-As demand for those stocks increases, so does their price, increasing the cost for prospective buyers, 
-and raising the value of the company's stocks people already own. 
-For the company, this increased interest helps fund new initiatives, and also boosts its overall market value,
-by showing how many people are willing to invest in their idea. However, if for some reason a company starts to seem less profitable, 
-the reverse can also happen. If investors think their stock value is going to decline, 
-they'll sell their stocks with the hopes of making a profit before the company loses more value.
-As stocks are sold and demand for the stock goes down, the stocks price falls, 
-and with it, the company's market value. 
-
-These can leave investors with big losses - unless the company starts to look profitable again.
-this see-saw of supply and demand is influenced by many factors. Companies are under the unavoidable influence of market forces
-such as the fluctuating price of materials, changes in production technology, and the shifting costs of labor. 
-Investors may be worried about changes in leadership, bad publicity, or larger factors like new laws and trade policies.
-And of course, plenty of investors are simply ready to sell valuable stocks and pursue personal interests.
-All these variables cause day-to-day noise in the marker, which can make companies appear more or less successful. 
-And-in the stock market, appearing to lose value often leads to losing investors, and in turn, losing actual value.
-Human confidence in the market has the power to trigger everything from economic booms to financial crises.
-And this difficult-to-track variable is why most professional promote reliable long term investing over trying to make
-quick cash.  
-
-However, experts are constantly building tools in efforts increase their chances of success in this highly unpredictable system.
-But the stock market is not just for the rich and powerful. With the dawn of the Internet, everyday investors can buy stocks 
-in many of the exact same ways a large investor would. And as more people educate themselves about this complex system.
-they too can trade stocks, support the businesses they believe in, and pursue their financial goals. 
-The first step is getting invested.
 
 
 

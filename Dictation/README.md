@@ -128,8 +128,12 @@ Oh, all right? That'll give us a chance to visit.
 59. This iceberg here, there's outcroppings(漏头) under the water, and uh, sea ice, iceberg ice is very hard, so it's almost like,
 it could be almost like a can opener(开罐器). And when probably the Titanic went by it. It just sliced a hole in it like you would with a manual can opener.
 
-60. It's snowing at a beautiful winter, nowhere at freeing at a post by eight dogs in the truble, and really I doesn't much more front dnish.
+60. It's snowing, it's beautiful, we're out in the middle of nowhere(desolate/isolated). I'm freezing! 
+And I'm about to be pulled by 8 dogs in a toboggan(sleigh雪橇). Um, really, It doesn't get much more vermont(付蒙特州) than this.
  
+61. February 9th, 1964, Beatlemania hits(上映) primetime(黄金时段) in the United State.
 
+62. According to the CDC 2 out of every 6 Americans are considered the over-weight or over-bits 
+and the train tools unhealthy habit they study the younger with twenty percent nearly 6 or 11 considered obs.
 
 
