@@ -1,5 +1,19 @@
 ## TED
 
+### How to optimize your life?
+
+We waste a lot of time. Life is like a messy jigsaw(拼图) with too much room between the cracks. There are the moments you're actually getting things done. And this? This is wasted time. Which, for the average person, amounts to 21.8 hours every week. That's equals to a part time job or running five whole marathons. The good news is we now have an arraty of good and servives designed to optimize out lives and squeeze that puzzle into an impermeable, airtight hunk of productivity. And all it takes if five pretty steps.
+
+- Step one, minimize friction, maximize hustle. Imagine you wake up in the morning. Maybe in real life, you look like this, or this, or this. But right now, you're just going to look like this guy. You're 5'10'', average build, with a strong preference for citrus,  and an estimated lifespan of 82. Optimizing is going to allow you to milk as much time out of those 82 years as humanly possible. So pack your gym bag the night before. That way, you can grab it on your way out the door without having to think twice or second guess your athletic goals. Read your daily news briefing on the way to the gym and try to complete a seven minute, high intensity workout session, which can improve your oxygen consumption by up to 9%, allowing you to be more productive the rest of the day. Optiomization is about thinking on step ahead. If you order your coffee while you're still at the gym, you can pick it up on your way to work practicelly without having to stop. Seamless. Now you work for a while. In 1930, John Maynard Keynes famously predicted that, with the advance of technology, we would only have to work 15 hours a week to get by.  Well, Keynes' prediction was completely backward. Rather than reducing the hours we work, we've found a way to increase the work we do every hour. Eventually, you leave work and walk for a bit to offset the sitting. But then you need to eat off at the walking. Meal subscription services are awesome for this. So you can have everything you need for dinner chopped and waiting for you by the time you're unpacked and repacked your gym bag. Read a book while you cook, but not the whole book. These are services now that actually just give you the short version of the book. Same info, way less time. With all these time saving devices, you're now able to go to bed way ahead of schedule. And with polyphasic sleeping,  you can stop spending so much damn time unconscious,  and therefore unproductive. 
+- Step two, iterate. The next morning, you're five hours ahead of time and feeling great. But you know you could be feeling better. At the gym, check your emails on the bike while drinking a meal replacement shake with an added shot of MCT oil to stabilize the glucose in your bloodstream and prevent you from getting hungry until dinner or maybe ever again. You're saving time and feeling great. And when you save time and feel great, you're going to have more time and energy to plan out how to save more time and feel even better. You're home wildly ahead of schedule and meal prepping next week's morning shakes. While Alexa reads off your 23 and Me result. In your dreams, you descend into a deep, fiery cave that looks kind of like your gym, except inside a volcano, visited by conjurings of all the people doing more than you. Victor something, who you haven't talked to since high school, but apparently has a tech startup and a six pack. 
+- Wake up in a cold sweat ready to take your day to the next level with step three. Which is to ship step three. 
+- Step four, accelerate. Fast forward a month. You have optimized your life so efficiently that you're now able to live five while days in the time takes most people to live just one. With a quick calculation, you realize that you previously predicted 82 year lifespan, combined with your current rate of productivety, minus the 34 years you lived before you learned how to optimize actually comes out to a whooping 240 productive years of life for you. 
+- Step five, eventually, you die. You win the international award for most lives lived in one life. No one knows quite what it was you did with all that time. All they know is your sure didn't waste it, right? 
+
+------
+
+
+
 ### How does the stock run?
 
 In the 1600s, the Dutch East India Company employed hundreds of ships to trade gold, porcelain, spices and silks around the globe.
@@ -425,7 +439,7 @@ self-care. Imaging being able to give your loved ones, the gift of self-love. Sp
 one you've got. It's your home and it deserves your respect. If you see anyone tearing themselves down, build them back up.
 And watch your life positively grow, when you give up the pursuit of perfection. Because the real beauty ideal is being imperfectly you
 Thank you so much, everybody.
- 
+
 
 ### The six steps to improve your emotional intelligence ?
 
@@ -768,7 +782,7 @@ make in life. You may experience a cycle of grieving with stages of anger, denia
 
 Some things are just meant to come apart and that's okay. People are meant to change and mature. Moving forward in life
 means learning and growing from your past not being held back by it.    
- 
+
 ### why you still single?
 
 Do you feel everyone in your life is already in a relationship expect you? Do you find yourself wondering why you still haven't found that special someone?
@@ -786,7 +800,7 @@ However you should not be careful not to set the bar too high for anyone to clim
 someone for a long time and no one even comes close. There's possibility that your idea of a perfect partner simple doesn't exist.
 No body is going to have all the same interest and passions as you or immediately know what to do or how to act around you, movies and books can often 
 give us unrealistic expectations about love and romance seeing all those perfect relationships on social media may also make it hard for you to settle down. 
- 
+
 - You are still heart broken. Are you thinking of dating someone new even though you're still hung up on your ex, you might think that getting over someone means finding a replacement 
 for them, but rushing into things is never a good idea. This is why rebound relationships don't often work out no matter how much time has passed. Whether it's been weeks months or even years.
 You shouldn't be looking for a new partner yet. If you're still nursing a broken heart from your last failed romance instead allow yourself all the time you need to heal and truly let person go
@@ -829,7 +843,6 @@ your relationship last.
 
 
   
- 
 
 
 
@@ -855,17 +868,6 @@ your relationship last.
 
 
 
-
-
-
-
-
-
-
- 
-
-
- 
 
 
 
@@ -883,7 +885,19 @@ your relationship last.
 
 
 
+
+
+
  
+
+
+
+
+
+
+
+
+
 
 
 
