@@ -1,5 +1,25 @@
 ## TED
 
+###  This is what focus is about.
+
+When I was 23 years old, I felt that I had a kind of capacity an inner dirive and an energy that I didn't really know how to handle. And it frustrated me not knowing what to do or where to go in this world. I was completely lost. And the only solution I could think of was trying to become best in the world. At something, I had no idea in what, But I decided to become a world champion. I was quiet athletic, but my helpful brother pointed out that I was too old to become a world-class sprinter. So I choose shooting. In my world, I was programmed to win, but I didn't. And I couldn't understand how it could be so incredibly difficult. It was only my perseverance that kept me going. I saw, and I focused on, a beautiful autumn leaf playing in the wind. I give this leaf my full attention. And sunddenly, I am completely calm, and the world campion title is mine. This action was a deliberate choice and the result of persistent mental training. Because this leaf relieved me of distracting thoughts.
+
+The phenomena of focus interested me more and more,  not only in peak performance,  but also in the longer perspective and in life in general.  I studied this visual capacity and what I saw was that the human struggled with focus on three distinctive ways.
+
+- First, our minds are often full of disturbing thoughts, often worried about not being good enough. 
+- Second, insead of working with what we already know, we are constantly focused on what we will achieve. 
+- Third, we are frustrated for not having time.
+
+So, how can we help ourselves with these problems? Before we discuss that, we need to find out what focus is.
+
+In today's overflow, with new waves and trends, the ability to focus has been somewhat overlooked, despite its great value. It's a particularly complex function of our intelligent brain. The pre-eminently thinking human beings, all of us in here, I guess, have the ablility to think forward and backward in time. And we often do down the alarming path of thinking, What happens if …? If I forget what to say having a presentation? If I don't finish my report on time? If life doesn't turn out the way we had anticipated? Or we worry about why it didn't turn out the way we wanted it to. At  moments of need, free ourselves from these disturbing and worrying thougts, a kind of undemanding present arise. Because it's in this, undemanding present that we are focused. It's here that we perform and function exactly as well as we are. So standing there, sharking with nervousness, but giving that leaf my full attention, this is what happened. So, focus on is simply about choosing the right thought among thousands of thoughts. Now, how do we get focused?
+
+- Well, firstly, regarding the disturbing thoughts. We need to learn to notice disturbing thoughts and to distinguish them from not disturbing thoughts. A not disturbing thought is something completely neutral, like a lamp, a belt. Because as the brain, in broad terms, only can focus on one thing at a time, a not disturbing thought, knocks out all the disturbing and worrying thoughts. And this is enough to reach that inner capacity we in fact already possess.
+- Second,  regarding how we constantly focus on waht we will achieve. In the performance-based society of today, we often lose focus because we constantly strive towards the new and better instead of finding our inner power and constructively working with what we are best at each given moment. Because if we already think about the goal, about what we want to achieve, about where we want to go, about who we want to become, our focus is consistently on the future and not on the work that needs to be done now. But that is how focus ends up on who we are and what we have instead of chasing after what we are not and do not have. So focusing is not becoming something new or something better, but simply about functioning exactly as well as we already are and understanding that this is enough for both general happiness and great achievements. 
+- Third, 
+
+
+
 ### How to optimize your life?
 
 We waste a lot of time. Life is like a messy jigsaw(拼图) with too much room between the cracks. There are the moments you're actually getting things done. And this? This is wasted time. Which, for the average person, amounts to 21.8 hours every week. That's equals to a part time job or running five whole marathons. The good news is we now have an arraty of good and servives designed to optimize out lives and squeeze that puzzle into an impermeable, airtight hunk of productivity. And all it takes if five pretty steps.

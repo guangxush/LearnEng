@@ -63,12 +63,13 @@ F: I'm a damn(really) fine actor.
 61. February 9th, 1964, Beatlemania hits(上映) primetime(黄金时段) in the United State.
 62. According to the CDC, 2 out of every 3 Americans are considered (thought to be) either overweight or obese, and the trend towards unhealthy habits is starting even younger with nearly twenty percent of children between the age of 6 and 11 considered obese.
 63. There're places I'll remeber. All my life, though some have changed. Some forever, not for better. Some have gone and some remain. All these places have their moments with lovers and friends I still can recall. Some are dead and some are living in my life. I've loved them all.
-64. - Would you pleasure the ketchup?
-   - What?
-   - The ketchup?
-   - You mean the catsup?
-   - Educated people pronuce the ketchup.
-   - I want to it pretive.
-65. 
+64. - Douglas, Would you please pass the catsup(a condiment)?
+   - The What?
+   - The catsup?
+   - You mean the ketchup(番茄酱)?
+   - Educated people pronounce it cat-sup.
+   - Not if they want me to pass it to them.
+65. February 18, 1885 Mark Twain's "The Adventures of Huckleberry Finn ", one of the great American novels, is first published in the United State.
+66. 84% of all doctors visit the humans with cancers they are on destory.
 
 
