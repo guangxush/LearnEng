@@ -70,6 +70,10 @@ F: I'm a damn(really) fine actor.
    - Educated people pronounce it cat-sup.
    - Not if they want me to pass it to them.
 65. February 18, 1885 Mark Twain's "The Adventures of Huckleberry Finn ", one of the great American novels, is first published in the United State.
-66. 84% of all doctors visit the humans with cancers they are on destory.
+66. 86% of all doctor visits and illness, statistically, are based on stress.
+67. History is amazing, what took thousands of years to develop as great civilizations, took a flash to change. When Hernando Cortez and 550 men landed on the Gulf of Mexico in 1519, it took only a couple of years to forever change the land that is now Mexico. 
+68. - Stop it ?
+   - Stop What?  You're talking me in Morse Code. But you know what? Joke's on you 'cuz, I know Morse Code!
+   - Hay!
 
 
