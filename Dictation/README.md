@@ -76,4 +76,5 @@ F: I'm a damn(really) fine actor.
    - Stop What?  You're talking me in Morse Code. But you know what? Joke's on you 'cuz, I know Morse Code!
    - Hay!
 
-
+69. American Electric Power is currently(right now) below its 50-day moving avergae of  \$40.28 and below its 200-day MA of \$38.53.
+70. People born on Fuburary 29th on some previous leap year — also known as "leaplings" — they finally get to celebrate their real birthday!s

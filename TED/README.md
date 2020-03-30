@@ -1,8 +1,30 @@
 ## TED
 
+###  How can we control the coronavirus pandemic?
+
+- What dose containment mean when it comes to outbreaks?
+
+Containment is this idea that you can focus your effect on control very much on the case and their contacts. So you're not causing distruptions to the wider population, you have a case that comes in, you isolate them, you work out who they've come into contact with who's potentially these opportunities for exposure and then you can follow up these people, maybe quarantine them, to make sure that no further transmission happens. So it's very focused, targeted method, and for SARSm it works remarkably well. But I think for this infection, because some cases are going to be missed, or undected, you've really got to be capturing a large chunk of people at risk.If a few  hlip through the net, potentially, you're going to get an outbreak. 
+
+- If containment isn't enough, what comes next?
+
+In that respect, it would be about massive changes in our social interactions. And so that would require of the oppotinuties that could spread the virus so these kind of close contacts, everybody in the population, on average, will be needing to reduce those interactions potentially by two-thirds to bring it under control. That might be through working from home, from changing lifestyle, and kind of where you go in crowded places and dinners. And of course, these measures, things like school closures and othher things that just attempt to reduce the cocial mixing of a population. 
+
+- What are the risks that we need people to think about?
+
+It's not just whose hand you shake, it's whose hand that person goes on to shake. ANd I think we need to think about these second-degree steps, that yo mightthhink you have low risk, and you're younger group, but you're often going to be a very short step away from someone who is going to gethit very hard by this. And I think we really need to socially minded and think this could be quite dramatic in terms of change of behavior, but it needs to be to reduce the imact that we're potentially facing. 
+
+- How far apart should people stay from each other?
+
+I think it's hard to pin down exactly, but I think one thing to bear in mind is that there're not so much evidence that this kind of aerosol and it goes reallly far. It;s reasonably short distances. I don't think it's the case that you're sitting a few meters away from someone and virus is somehow going to get accross. It's in closer interactions, and it's why we're seeing so many transmission events occur in things like meals and really tight-kint groups. Because if you imagie that's where you can get a virus out and onto surfaces and onto hands and onto faces and it's really situations like that we've got to think more about. 
+
+- What kind of protective measures should countries put in place?
+
+I think that's what people are trying to piece together, first in terms of whar works. It's only really in the last sort of few weeks we've got a sense that thing can be controllable with this extent of interventions, but of course, not all countries can do what China have done, some of these measures incur a huge social, econimic, psychological burden on populations. And of course, there's the time limit. In China, they've had them in for six weeks, it's tough to maintain that, so we need to think of these tradeoffs of all the things we can ask people to do, what's going to have the most impact on actually reducing the burden. 
+
 ###  This is what focus is about.
 
-When I was 23 years old, I felt that I had a kind of capacity an inner dirive and an energy that I didn't really know how to handle. And it frustrated me not knowing what to do or where to go in this world. I was completely lost. And the only solution I could think of was trying to become best in the world. At something, I had no idea in what, But I decided to become a world champion. I was quiet athletic, but my helpful brother pointed out that I was too old to become a world-class sprinter. So I choose shooting. In my world, I was programmed to win, but I didn't. And I couldn't understand how it could be so incredibly difficult. It was only my perseverance that kept me going. I saw, and I focused on, a beautiful autumn leaf playing in the wind. I give this leaf my full attention. And sunddenly, I am completely calm, and the world campion title is mine. This action was a deliberate choice and the result of persistent mental training. Because this leaf relieved me of distracting thoughts.
+When I was 23 years old, I felt that I had a kind of capacity an inner dirive and an energy that I didn't really know how to handle. And it frustrated me not knowing what  to do or where to go in this world. I was completely lost. And the only solution I could think of was trying to become best in the world. At something, I had no idea in what, But I decided to become a world champion. I was quiet athletic, but my helpful brother pointed out that I was too old to become a world-class sprinter. So I choose shooting. In my world, I was programmed to win, but I didn't. And I couldn't understand how it could be so incredibly difficult. It was only my perseverance that kept me going. I saw, and I focused on, a beautiful autumn leaf playing in the wind. I give this leaf my full attention. And sunddenly, I am completely calm, and the world campion title is mine. This action was a deliberate choice and the result of persistent mental training. Because this leaf relieved me of distracting thoughts.
 
 The phenomena of focus interested me more and more,  not only in peak performance,  but also in the longer perspective and in life in general.  I studied this visual capacity and what I saw was that the human struggled with focus on three distinctive ways.
 
