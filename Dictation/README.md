@@ -75,6 +75,7 @@ F: I'm a damn(really) fine actor.
 68. - Stop it ?
    - Stop What?  You're talking me in Morse Code. But you know what? Joke's on you 'cuz, I know Morse Code!
    - Hay!
-
 69. American Electric Power is currently(right now) below its 50-day moving avergae of  \$40.28 and below its 200-day MA of \$38.53.
-70. People born on Fuburary 29th on some previous leap year — also known as "leaplings" — they finally get to celebrate their real birthday!s
+70. People born on Fubruary 29th on some previous leap year — also known as "leaplings" — they finally （have the change to/are allow to）get to celebrate their real birthday！
+71. You can essentially(basically) opt out(choose) of the new policy by manually deleting your Google web history or by simply not signing(logging) in to sites like Gmail when searching on Google.
+72. Everyone who comes into our shop tells us "you have the ferfect life", and we say, "Yeah, you know what, we do, we really do." They go hand in hand — books and chocolate.
