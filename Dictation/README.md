@@ -78,4 +78,15 @@ F: I'm a damn(really) fine actor.
 69. American Electric Power is currently(right now) below its 50-day moving avergae of  \$40.28 and below its 200-day MA of \$38.53.
 70. People born on Fubruary 29th on some previous leap year — also known as "leaplings" — they finally （have the change to/are allow to）get to celebrate their real birthday！
 71. You can essentially(basically) opt out(choose) of the new policy by manually deleting your Google web history or by simply not signing(logging) in to sites like Gmail when searching on Google.
-72. Everyone who comes into our shop tells us "you have the ferfect life", and we say, "Yeah, you know what, we do, we really do." They go hand in hand — books and chocolate.
+72. Everyone who comes into our shop tells us "you have the ferfect life", and we say, "Yeah, you know what, we do, we really do." They go hand in hand（绝配） — books and chocolate.
+73. I've accomplished more in my life than I've ever thought possible.
+74. 5.4 million children, children who are 8, 9 and 10 years of age, who are using — are being used to mine with their bare hands, so you can text and play Angry Birds.
+
+
+
+
+
+
+
+
+

@@ -1,5 +1,17 @@
 ## TED
 
+### How not to take things personally?
+
+I would like to see FairPlay on the field respect and positivity. Is that okay for everyone? I decide to become a referee for two other reasons, one to stay in good shape, two because I wanted to learn how not to take things personally. 
+
+As a referee I'm the scapegoat, apparently I'm always wrong , it's always my fault and I wanted to learn how not to take all this personally, because I really struggle with me. When somebody cancels an appointment last minute, I get the feeling that I'm not important enough, again I take it personally. Even perfessionally, I'm a public speaker like tonight this is what I do. I give keyynote speeches and I really like it. As long as I can draw my audience into my story, because  the very moment, I see somebody is not paying attention, for example when someone is looking at his smartphone it just happens I take it personally. I'm very conscious that this can happen, and more importantly I have a strategy to deal with it. So tonight I would like to share this strategy with you. 
+
+Imagine you invite a friend to go to the movies and she replies oh sorry I have to work but you see a picture on social media of her having dinner with some friends that's very nice. Or imagine you really have worked very hard on a project, you're really proud of the end result, but the only thing you get is criticism, so you come home and would to wind down, and share this terrible experience, but while you're telling your story, the other one walks away — switch on the TV, now who would take one of these situations personally. 
+
+Why do we take things personally? Somebody says or does something and bam we feel hurts, neglected offended betrayed by the other one, that's what we believed though it's the other person's fault, he is responsible for what we feel he's the one to blame now hang on who says that whichh part of us is speaking? It's our ego. Our ego thinks that others should take us into consideration. Out ego doesn't want to be criticized hell no. Is this what you want? That's exhausting. When my ego takes over I'm fighting all day, I'm in a constant strugglr with the rest of the world and it drains my energy. Wouldn't be so much easier to not take things personally. 
+
+
+
 ###  Asperger is a gift.
 
 Today I want tail to you about dreams. I have been a lucid dreamer my whole life, and it's cooller than in the movies. Beyond flying, breathing fire, and making hot men spontaneously appear. I can do things like read and write music. Fun fact is that I wrote my personal statement to college in a dream. And I did accepted, So yeah. I am a very visual thinker. I think in pictures, not words. To me, words are more like instincts and language. There are many people like me: Nikola Tesla, for example, who could visualize, design, test, and troubleshoot everything — all of his inventions — in his mind, accurately. Language is kind of exclusive to our species, anyway. I am a bit more primitive, like a beta version of Google Translate. My brain has the ability to hyper-focus on things that interest me. For example, once I had an affair with calculus that lasted longer than some celebrity marriages. There are some other unusual things about me. You may have noticed that I don't have much inflection in my voice. That's why people often confuse me with a GPS. This can make bascic communication a challenge, unless you need directions. 
