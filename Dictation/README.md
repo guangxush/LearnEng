@@ -81,8 +81,8 @@ F: I'm a damn(really) fine actor.
 72. Everyone who comes into our shop tells us "you have the ferfect life", and we say, "Yeah, you know what, we do, we really do." They go hand in hand（绝配） — books and chocolate.
 73. I've accomplished more in my life than I've ever thought possible.
 74. 5.4 million children, children who are 8, 9 and 10 years of age, who are using — are being used to mine with their bare hands, so you can text and play Angry Birds.
-
-
+75. (I'll / I hope to)See you at the Seahawks' 12 k, 5 k run/walk and Kids Dash April 1st.
+76. 24-hours access to cupcakes — it's a nightmare(噩梦) for dieters, but this vending concept is an advantage for Sprinkles when it comes to cupcake competition.
 
 
 
