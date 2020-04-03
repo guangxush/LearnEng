@@ -82,7 +82,15 @@ F: I'm a damn(really) fine actor.
 73. I've accomplished more in my life than I've ever thought possible.
 74. 5.4 million children, children who are 8, 9 and 10 years of age, who are using — are being used to mine with their bare hands, so you can text and play Angry Birds.
 75. (I'll / I hope to)See you at the Seahawks' 12 k, 5 k run/walk and Kids Dash April 1st.
-76. 24-hours access to cupcakes — it's a nightmare(噩梦) for dieters, but this vending concept is an advantage for Sprinkles when it comes to cupcake competition.
+76. 24-hours access to cupcakes — it's a nightmare(噩梦) for dieters(节食者), but this vending(自动售货) concept is an advantage（a plus） for Sprinkles when it comes to(regarding) cupcake competition.
+77. Next we enter the White Desert(白色沙漠 dessert甜食) where from a distance（从远处看） the limestone（石灰） looks like snow and rock piles（岩石堆）（look） like icebergs（冰山）. 
+78. - Call Jeff and tell him about this.
+   - No, wait, wait, What time is it ?
+   - It's 10:20.
+   - 10:00 is the cut-off time. You don't call people after 10:00. 
+   - No, no, no. The cut-off time is 10:30.
+   - 10:00. You don't call after 10:00.
+   - No, no, no, 10:30!
 
 
 
