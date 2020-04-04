@@ -1,5 +1,15 @@
 ## TED
 
+### 13 Reasons Introverts Are So Attractive
+
+Introvers. We all know one, maybe you even are one. Either way, everyone has an opinion: some say they're too shy to hold a conversation, wile others see them as a cold outsiders. Of course, anyone who knows as introvert, knows this isn't the case. While introverts might be more comfortable enjoying their own company, they seem to have this magnetism, that's almost a super-power. Whether they're keeping to themselves or hanging out with friends, introverts seem to always catch people's eyes and their attention, drawing others to them without so much as lifting a finger. What's the secret? Well, this ability to attract others isn't down to one specific thing, but a whole host of reasons. Wether or just want to learn more about them, check out the reasons why introverts are so attractive! 
+
+Number1-They Are Dreamers.  Daydreaming isn't just for kids. Having an open and active imagination and being able to see what others may not is a beautiful ability-one that introverts are blessed with. They spend a lot of time in reflexive thoght working things over their minds. Or jus enjoying letting their minds wander, wherever it may lead, Introverts think about anything and everything from what they had at breakfast to deep subjects like life and universe. They are certainly not just passive observers on their journey through the world, and thhey like to reflect on life as it unfolds around them.
+
+
+
+
+
 ### How not to take things personally?
 
 I would like to see FairPlay on the field respect and positivity. Is that okay for everyone? I decide to become a referee for two other reasons, one to stay in good shape, two because I wanted to learn how not to take things personally. 
@@ -16,7 +26,7 @@ First strategy: It's not about me, look at the other person's intention. I take 
 
 Sencond strategy: It's about me. I have to look in the mirror and question myself, as beginning referee I still feel insecure, I doubt about myself. I knwo there is some truth in it, from hosest I'm aware of the fact that I do not always take into account other people's needs, when you are being criticized and it hurts, chances are big this is rooted in your childhood, maybe as a child you were never good enough, when you came home with a nine out of 10, they said hey and why another 10, you see you can only take things personally, If it somehow touches a role nerve, and that moment to give youself some empathy. I'm longing so hard for recognition. I feel sad, if I don't get it. By opening up, by being vulnerable, by telling what you feel without blaming the other one, you increase the dance that the other one will understand you and your needs into account, you see what I mean.
 
-To conclude how not to take things personally. One it is not about me, look at the othre person's intention. If that doesn't work, two it is about me, give yourself empathy and speak up, I really hop you will take a couple of things personally within the next hours and days, only if you do you can test out these new strategies. We could all if we could all put this in practice, wouldn't that enhance our realtionships enormously, together we could create a better world. 
+To conclude how not to take things personally. One it is not about me, look at the othre person's intention. If that doesn't work, two it is about me, give yourself empathy and speak up, I really hop you will take a couple of things personally within the next hours and days, only if you do you can test out these new strategies. We could all if we could all put this in practice, wouldn't that enhance our realtionships enormously, together we could create a Better world.
 
 ###  Asperger is a gift.
 
