@@ -92,9 +92,9 @@ F: I'm a damn(really) fine actor.
    - 10:00. You don't call after 10:00.
    - No, no, no, 10:30!
 
+79. Stand firm for what you believe in until and unless logic and experience prove you wrong. Remember, when the emperor looks naked, the emperor is naked. The truth and a lie are not sort of(kind of) the same thing.
 
-
-
+80. Olives are the gold in Andalucia. Spain is the world's biggest olive oil producer, and Andalllucia accounts for 80% of Spanish oil.
 
 
 
