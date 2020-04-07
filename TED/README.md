@@ -1,5 +1,9 @@
 ## TED
 
+### What do you want to be when you grow up? 
+
+You are four years old and you're being asked thhis question for the first time, and you have to think very very carefully, because your answer could potentially predict what daycare and summer camps you do, what parental approved front groups you'll have. What classes you'll take in high school and what fun classes you'll take in high school? What volunteer and extracurricular activities you'll do and about what strategically gets palced on your resume? What colleges you'll apply for? What majors and minors you'll pick? What networking events to attend? Wat jobs apply for? What first job your pick? What second job you'll pick?  And eventlly your career? So if all things go perfectly well, little Jani will say I'm gonna to be a doctor and right now standing in front of you I can proudly and confidently tell you, I am not a doctor.
+
 ### 13 Reasons Introverts Are So Attractive
 
 Introvers. We all know one, maybe you even are one. Either way, everyone has an opinion: some say they're too shy to hold a conversation, wile others see them as a cold outsiders. Of course, anyone who knows as introvert, knows this isn't the case. While introverts might be more comfortable enjoying their own company, they seem to have this magnetism, that's almost a super-power. Whether they're keeping to themselves or hanging out with friends, introverts seem to always catch people's eyes and their attention, drawing others to them without so much as lifting a finger. What's the secret? Well, this ability to attract others isn't down to one specific thing, but a whole host of reasons. Wether or just want to learn more about them, check out the reasons why introverts are so attractive! 
