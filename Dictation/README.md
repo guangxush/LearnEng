@@ -94,7 +94,9 @@ F: I'm a damn(really) fine actor.
 
 79. Stand firm for what you believe in until and unless logic and experience prove you wrong. Remember, when the emperor looks naked, the emperor is naked. The truth and a lie are not sort of(kind of) the same thing.
 
-80. Olives are the gold in Andalucia. Spain is the world's biggest olive oil producer, and Andalllucia accounts for 80% of Spanish oil.
+80. Olives are the gold in Andalucia. Spain is the world's biggest olive oil producer, and Andalucia accounts for（makes/ produces） 80% of Spanish oil.
+81. Dr. Emoto has conducted another interesting experiment. He placed(put) rice(米) into 3 glass beakers（烧杯） and covered it with water. And then every day for a month he said  "Thank you" to one beaker, "You're an idiot（白痴）" to the second, and third one, he completely ignored. 
+82. You know, most people think the world is getting worse, that the life of their children is getting be less than they had, but the fact of the matter is, the world is getting better at an extraordinary rate. 
 
 
 
