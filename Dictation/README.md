@@ -91,12 +91,12 @@ F: I'm a damn(really) fine actor.
    - No, no, no. The cut-off time is 10:30.
    - 10:00. You don't call after 10:00.
    - No, no, no, 10:30!
-
 79. Stand firm for what you believe in until and unless logic and experience prove you wrong. Remember, when the emperor looks naked, the emperor is naked. The truth and a lie are not sort of(kind of) the same thing.
-
 80. Olives are the gold in Andalucia. Spain is the world's biggest olive oil producer, and Andalucia accounts for（makes/ produces） 80% of Spanish oil.
 81. Dr. Emoto has conducted another interesting experiment. He placed(put) rice(米) into 3 glass beakers（烧杯） and covered it with water. And then every day for a month he said  "Thank you" to one beaker, "You're an idiot（白痴）" to the second, and third one, he completely ignored. 
-82. You know, most people think the world is getting worse, that the life of their children is getting be less than they had, but the fact of the matter is, the world is getting better at an extraordinary rate. 
+82. You know, most people think that the world is getting worse, that the life of their children is getting be less than they had, but the fact of the matter is, the world is getting better at an extraordinary(非凡的) rate. 
+83. In a city full of showy(艳丽) sights(景象), these are more humble(谦逊) creations standing by(waiting) until that stretch(伸展) in March and April when it is time to blossom(开花).
+84. Trying is having the intention to fail, you gotta scrap the world from your voca. Say you're gonna do it and you will.
 
 
 
