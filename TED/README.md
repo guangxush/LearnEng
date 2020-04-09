@@ -1,5 +1,37 @@
 ## TED
 
+### We will meet again!
+
+I am speaking to you at what I know is an increasingly challenging time. A time of distribution(混乱) in the life of our country: a distribution that has brought grief(悲伤) to some, financail difficulties to many, and enormous(巨大) changes to the daily lives of us all.
+
+I want to thank everyone on the NHS front line, as well as care workers and those carrying out(坚持) essential(关键) roles(岗位), who selflessly continue their day—to-day duties outside the home (在家中)in support of us all(在外面). I am sure the nation(国民) will join me in assuring you(使确信) that what you do is appreciated and every hour of your hard work brings us closer to a return to more normal times(回归正常). 
+
+I also want to thank those of you who are staying at home. Thereby(因此) helping to protect the vulnerable(脆弱的) and sparing(使远离) many families the pain already fellt baby those who have lost loved ones. Together we are tackling this disease, and I want to reassure that if we remain united(团结) and resolute(决心), then we will overcome it. 
+
+I hope in the years to come(不久的将来) everyone will be able to take pride in(感到骄傲) how they responded to this challenge. And those who come after us(我们的后人) will say the Britons of this generation(这一代) were as strong as any. That the attributes(属性，特征，品质) of self-discipline(自律), of quiet good-humoured(迁就，顺应，心平气和) resolve and of fellow-feeling(同心同德) still characterise this country. The pride in who we are is not a part of our past, it defines(定义) out present and our future. 
+
+The moment when the United Kingdom has come together to applaud(故障) its care and essential workers will be remembered as an expression of our national spirit(国家精神); and its symbol(标志) will be rainbows(彩虹) drawn by children. 
+
+Across the Commonwealthh(英联邦) and around the world, we have seen heart-warming(暖心的) stories of people coming together to help others, (wether or)be it through delivering food parcels(食品) and medicines, checking on(问候) neighbours, or converting business to help the relief effort. 
+
+And though self-isolating(自我隔离) may at times be hard, many people of all faiths(信仰), and of none, are discovering that it presents(是) an opportunity to slow down(放慢手头的事情), pasuse and reflect(反思), in prayer(祈祷) or meditation(冥想).
+
+It reminds me of the very first broadcast(广播演讲) I made, in 1940, helped by my sister. We, as children, spoke from here at Windsor(温莎) to children who had been evacuated(被迫离开) from their homes and sent away(送到很远的地方) for their own safety. Today, once again, many will feel a painful sense of separation(分离) from their loved ones. But now, as then, we know, deep down(事实上/本质上/内心深处), that it is the right thing to do.
+
+While we have faced challenges before, this one is different. This time we join with all nations(国家) across in a common endeavor(共同努力), using the great advances of science and our instinctive(本能的) compassion(同情心) to heal(治愈). We will succeed — that that success will belong to every one of us. 
+
+We should take comfort(安慰) that while we may have more still to endure(忍受), better days will return.
+
+We will be with our friends again.
+
+We will be with our families again.
+
+We will meet again.
+
+But for now, I send my thanks and warmest good wishes to you all.
+
+
+
 ### What do you want to be when you grow up? 
 
 You are four years old and you're being asked thhis question for the first time, and you have to think very very carefully, because your answer could potentially predict what daycare and summer camps you do, what parental approved front groups you'll have. What classes you'll take in high school and what fun classes you'll take in high school? What volunteer and extracurricular activities you'll do and about what strategically gets palced on your resume? What colleges you'll apply for? What majors and minors you'll pick? What networking events to attend? Wat jobs apply for? What first job your pick? What second job you'll pick?  And eventlly your career? So if all things go perfectly well, little Jani will say I'm gonna to be a doctor and right now standing in front of you I can proudly and confidently tell you, I am not a doctor. Here are somehrights from that list, a doctor, an actress and a politician well the President of the United States of American, an engineer a scientisst a historian. But specially one who studies hieroglyphics or the ancient pychamids of Egypt, a pro score player and a garbageg turck driver. I had a chance to try out some of these jobs. When I was only in Middle School. I got to work at Osk Ridge National Laboratory and I got to work with real sccientissst do incredible research and I was a little bored. I mean no it was a really big deal to be a part of something, that could change the world one day, and being exposed to real science when you're that young it was an incredible experience. I just didn't fulfill me. So one summer I found   the inner strength and courage to beg my parents for a regualr high school job. They said yes. And I wroked at American Eagle Outfitters. I was on fire at American Eagle. I worked the crash register. I worked the dressing rooms.  I was a denim expert. 
