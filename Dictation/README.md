@@ -96,7 +96,8 @@ F: I'm a damn(really) fine actor.
 81. Dr. Emoto has conducted another interesting experiment. He placed(put) rice(米) into 3 glass beakers（烧杯） and covered it with water. And then every day for a month he said  "Thank you" to one beaker, "You're an idiot（白痴）" to the second, and third one, he completely ignored. 
 82. You know, most people think that the world is getting worse, that the life of their children is getting be less than they had, but the fact of the matter is, the world is getting better at an extraordinary(非凡的) rate. 
 83. In a city full of showy(艳丽) sights(景象), these are more humble(谦逊) creations standing by(waiting) until that stretch(伸展) in March and April when it is time to blossom(开花).
-84. Trying is having the intention to fail, you gotta scrap the world from your voca. Say you're gonna do it and you will.
+84. Trying is having the intention(意图 wanting) to fail, you ('ve) gotta(got to) scrap(抛弃) the world from your vocab(vocabulary). Say you're gonna(going to) do it and you will.
 
-
+85. Well that(point/question), I think, is the real CRUX(关键) of this issue(matter). 
+86. Look,  imagination feeds exploration, you have to imagine the possible before you can go and do it. 
 
