@@ -1,6 +1,38 @@
 ## TED
 
-### Women
+### Public Speaking 
+
+Public speaking is a skill useful in school at work and if we want to convince a group of people. Investor Warren Bufffett called it the most important skill we can learn to advance in a career. Here a short sprouts guide to master the most powerful weapon. If we want to bring change to the world. 
+
+- The Issue. Take an issue you really care about. When you study it, you are  intrinsically motivated to learn it more deeply and put in the extra effort. Later it gives you the passion you need to inspire your audience. When we speak in publicc, passion is probably our most powerful force. It shines through our eyes and straight into the hearts of the audience. 
+- One Simple Message. Every issue has many angles to whichh we can highlight. But the audience has a limited attention span and many others issues in life, so if we say too much, they will lose interest. To make a message stick. Chris Anderson recommends to boil it down to one idea that is worth spreading. A speech is good, if it plans one creative seed in the heads of the audience. A seed can then grow into a sprout, whicch can change lives and be shared with otheers.  
+- Strutture. Over 2000 years ago, the Greek philosopher Aristotle established 3 simple rules to any good speech: Established credibility: Ethos. Give good arguments: Logos. Conveying emotions: Pathos. But you can also tell a personal story ot present a problem and then offer a solution. 
+- Get Help. A good method is using note cards. You can use one card per argument and keep the deck in your hands, alternating them as you speak. Politicians often read their speech from a teleprompter. Professionals often sell their ideas  with the help of slides. When you have a product to show, demonstrate it. If you try to memorize your speech and you have one hour, spend 20 minutes studying and 40 minutes practicing to reicte it. That's ussally the best ratio. 
+- Speak Their Language. It doesn't matter what we say, it matters what they hear. According to Nerdwrite, Donald Trump speaks in a way that any fourth-grader can understand him. Guy Kasasaki reecommends to use what he calls salieent points. People don't want to know how large a battery is. They wantt to know how long theey can use it. When you prepare, ask yourself, how does my issue matter to this particular audience? 
+- Practise. Before you present, practice your delivery. It's important that we stand upright, arms open, palms out. We should speak loud and clear, and make eye contact with our audience. One way to practice is to try to speak in front of friends who don't know the topic. Then you will see if they get your point. Allertively you can also record and watch yourself on video. 
+- Check Your Stage. How big is the room, how many people will listen, will you need a microphone? Proseffsionals will want to walk onto the stage diagonal from the left back, apparently it's the most dynamic way make an entrance. Also, always hhave a glass of water next to you, so you can take a sip whenever you're losing it. 
+- Don't Be Afraid. Everybody can experience speech anxiety also known as Glossophhobia. It's natural and sometimes actually helps us to reach excellence. Mahatam Gandhi called it "the awful strain of public speaking." For years it prevented him from speaking up, even at friendly dinner parties. But in 1942, Gandhi convinced 60000 people with his Quit India Speech to join a peaceful revolt against British coloniaslism. He spoke up, the people followed his words and the British left. 
+- Open For Sympathy. When you enter the limelight, wait until you have eveeryone'f full attention. Then open to win sympathy, aslo called captatio benevolentiae. One way to excuse yourself. You can say:"You are a smart audience, so I don't really know what know what I can still tell you..." Obama opened his 2008 speech in Berlin with the words: "I have to admit that I have developed as special place in my heart for the Ferman people." And they love it.
+- Build Curiosity. Once they like you, grab their attention by building curiosity. Present a fact, statistics or a study. Or start in the middle of a story: "On my fifth birthday, my father started crying. It was the day he lost his job." Danajaya Hettiarchchi, a champion of public speaking, asked "raise your hand if you have an emotional mother?" And everyone did. But you can also do something ffunny or open with a crazy stunt. 
+- Deliver Your Message. Now make your arguements, share those personal stroies and deliver metaphors which create images in the minds of your audience. If you forget what you wanted to say, don't worry. Nobody knows want you meant to say. In 1963 Martin Luther King gave a speech in Washington. In the middle of it hee stopped reading from srcipt and started to improvise. He delivered one of the greatest speech of thee twentieth-century"I have a dream." 
+- Close. After you are done, summarise your arguements or repeat the core message. But you can also leave theem with a quote, share your dream of a new future or close your speech like we close our videos with a specific call for action. Here is comes! Write a speech about an important issue, such as education. Open with sympathy, build curiosity and then bring in your convincing argument. In the end, close it cleverly. Limit your speech to 200 words and post it in the comments below. 
+
+If you want to learn public speaking, you should also practice your speech. For example, the next 5 days, 15 minutees each day. Ideally, record yourself on your phone, so you can track your progress and learn from your mistakes. 
+
+1. 选择你真正关心的题目
+2.简短的亮点总结
+3.演讲结构—建立可信度，提出好论点，情感传达，或者提供问题的解决方法
+4.寻求帮助—如提示卡，ppt，如果只有一个小时准备，可以花20分钟研究内容，40分钟背诵
+5.用听众的语言演讲，可以问问自己，我演讲的内容跟观众的相关度是多少
+6.练习—让朋友帮忙，或是自己录像
+7.提前确认演讲环境—确认场地大小、观众人数决定是否需要麦克风，专业人士会从左后方沿对角线上台，还可以准备一杯水，关键时刻战术性喝水
+8.不要害怕！
+9.博取同情/好感
+10.提起观众们的好奇心
+11.传达你的信息—如使用隐喻
+12.结束语—可以总结自己的演讲，也可以用引言结束
+
+### Women also can hold the top positions.
 
 Women take up just 4.9 percent of the top positions and orginizations across 13 countries. These positionss include chairman of the board CEO, COO and CFO, outside of that the chief of HR, 62% of those positions belong to woman, sounds a little better doesn't it? Let's take a closer look. 71% of all HR positions are beld by women, so 71 out of 100 positions in HR are held  y women. However as we move up in the career ladder, the percentage of women holding those positions goes down. To add salt to the wound(更糟糕的是), in 2017 the list of 100 HR influences was published, only two women were in the top 20. 
 
