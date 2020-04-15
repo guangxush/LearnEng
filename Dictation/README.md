@@ -197,5 +197,11 @@
 
 89. April 4: The days to show compassion(同情 apathy/冷漠), care and act(action, 行动) for stray(流浪) animals all around the world!
 
-90. 1896, the first modern Olympic Games open in Athens Greece --land of the ancient games -- which athletes from 14 countries. 
+90. 1896, the first modern Olympic Games open in Athens Greece --land of the ancient games(古代运动) -- which athletes(运动员) from 14 countries. 
 
+91. - My bad(fault). (I'm sorry. I make a mistake.)
+   - (You had better/ I hope)Tell me you have good insurance(保险).
+   - Yep' I've got "Allstate".
+   - Really?
+
+92. The point is, you should get to know a person first Then judge them. You should never judge a book by its cover. Judge it by the amount of pages. 
