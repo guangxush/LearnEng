@@ -204,4 +204,9 @@
    - Yep' I've got "Allstate".
    - Really?
 
-92. The point is, you should get to know a person first Then judge them. You should never judge a book by its cover. Judge it by the amount of pages. 
+   - The point is, you should get to know a person first. Then judge them. You should never judge a book by its cover. Judge it by the amount of pages. （All that glitters is not gold~）
+
+92. I had it in spades(铲子) on both sides(被晒黑了), it came really natural(自然) to me.
+
+93. It takes a lot of work, you have to work every day on it. And then that's not a downside. There isn't a downside, really.
+
