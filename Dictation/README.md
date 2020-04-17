@@ -208,5 +208,19 @@
 
 92. I had it in spades(铲子) on both sides(被晒黑了), it came really natural(自然) to me.
 
-93. It takes a lot of work, you have to work every day on it. And then that's not a downside. There isn't a downside, really.
+93. It(Playing the guitar excellently) takes(requires/costs/spends) a lot of work(pracrice), you have to work every day on it. And then that's not a downside(discouraging/negative aspect). There isn't a downside, really.
 
+94. - J：Hello?
+
+   - P： Hi, Would you be interested in switching over to TMI Long Distance Service?
+   - J: Oh, gee, I can't talk right now. Why don't you give me your home number and I'll call you later.
+   - P：Uh, well, sorry. We're not allowed to do that.
+   - J: Oh, I guess you don't want people calling you at home?
+   - P：No.
+   - J: Well, now you know how I feel.(click!)
+
+95. As many of you know,
+    - Hey, you got anything to eat?
+    - Yeah, try these.
+    - I'm not eating that kid stuff.
+    - Just try them. 
