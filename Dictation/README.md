@@ -222,5 +222,8 @@
 95. As many of you know,
     - Hey, you got anything to eat?
     - Yeah, try these.
-    - I'm not eating that kid stuff.
+    - I'm not eating that kid‘s stuff.
     - Just try them. 
+
+96. We were supposed to meet today, but I missed our appointment, sorry.
+97. The cheetah excels at acceleration. It's the sports car of the savannah.
