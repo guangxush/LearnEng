@@ -206,11 +206,13 @@
 
    - The point is, you should get to know a person first. Then judge them. You should never judge a book by its cover. Judge it by the amount of pages. （All that glitters is not gold~）
 
-92. I had it in spades(铲子) on both sides(被晒黑了), it came really natural(自然) to me.
+92. The point is, you should get to know a person first. Then judge them. You should never judge a book bye its cover. Judge it by the amount of page.
 
-93. It(Playing the guitar excellently) takes(requires/costs/spends) a lot of work(pracrice), you have to work every day on it. And then that's not a downside(discouraging/negative aspect). There isn't a downside, really.
+93. I had it in spades(铲子) on both sides(被晒黑了), it came really natural(自然) to me.
 
-94. - J：Hello?
+94. It(Playing the guitar excellently) takes(requires/costs/spends) a lot of work(pracrice), you have to work every day on it. And then that's not a downside(discouraging/negative aspect). There isn't a downside, really.
+
+95. - J：Hello?
 
    - P： Hi, Would you be interested in switching over to TMI Long Distance Service?
    - J: Oh, gee, I can't talk right now. Why don't you give me your home number and I'll call you later.
@@ -219,11 +221,14 @@
    - P：No.
    - J: Well, now you know how I feel.(click!)
 
-95. As many of you know,
+96. As many of you know,
     - Hey, you got anything to eat?
     - Yeah, try these.
     - I'm not eating that kid‘s stuff.
     - Just try them. 
 
-96. We were supposed to meet today, but I missed our appointment, sorry.
-97. The cheetah excels at acceleration. It's the sports car of the savannah.
+97. We were supposed to meet today, but I missed our appointment, sorry.
+98. The cheetah excels at acceleration. It's the sports car of the savannah.
+99. It's only the mediocre(平庸) pupil(student) who does not surpass the master, Leonardo writes. And legend(传说) has it, that Verrocchio, after seeing Leonardo's angel, never painted again.
+
+100. Wether you're new to the world of paddling or a seasoned veteran, you are sure to find this video give padding guidbook helpful in your great to find and exciting rivers to explore.
