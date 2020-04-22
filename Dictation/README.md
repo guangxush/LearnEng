@@ -23,7 +23,7 @@
 
 12. Jem Henson, creator of The Muppets -- from Kermit the Frog to Sesame Street -- is born in Greenville, Mississippi.
 
-13. Asian tiger mosquitoes are native to the tropics of the Southeast Asian, but in the past few years that they've spread all across the southeastern United Sates.
+13. Asian tiger mosquitoes are native to the tropics of the Southeast Asian, but in the past few years that they've spread all across the southeastern United States.
 
 14. Cats reputedly have nine lives and he clearly wanted to spend at least one of them here in New York City.
 
@@ -77,13 +77,13 @@
 
 39. Dozens(12) of white rabbit were apparently（似乎） dumped along the side of the road Sunday night, more than 60 bunnies were scattered(散落) on the shoulder（of the road）.
 
-40. There is a wonderful line(quotation) I came across(found), If you are always done ... or, If you always do what you've always done, you'll always get what you've always got. It's a brilliant line.
+40. There is a wonderful line(quotation) I came across(found), If you are always done ... or, if you always do what you've always done, you'll always get what you've always got. It's a brilliant line.
 
-41. Her stories has inspired others form Montana to Indiana to pay off the bills of complete strangers in these days before Christmas.Holiday shoppers who've heard about the layaway Santas say the sweeping(彻底的，影响广泛的) acts of kindness(善举) have restored(恢复，使复原，修整) their faith(信心) in people.
+41. Her stories has inspired others from Montana to Indiana to pay off the bills of complete strangers in these days before Christmas. Holiday shoppers who've heard about the layaway Santas say the sweeping(彻底的，影响广泛的) acts of kindness(善举) have restored(恢复，使复原，修整) their faith(信心) in people.
 
 42. He sprang(jump) to his sleigh(雪橇) to his team gave a whistle(鸣笛)! And away they all flew like the down of a thistle（蓟）. But I heard him exclaim（say 喊叫） as he drove out of sight. Happy Christmas to all and to all a good night.
 
-43. E: Hey, George, you know(um), my friend goes to a psychics(巫师)? G: Really? E: Uh-huh, we should go sometime. G: I'd love to go. Make an appointment.
+43. E: Hey, George, you know(um), my friend goes to a psychics(巫师)? G: Really? E: Uh-huh, we should go some time. G: I'd love to go. Make an appointment.
 
 44. R: Dad, I beat you. Don't you remember the Ray man Spinball? F: Ray, I learned to play in Korea, from Koreans. Do you think some punk kid's gonna actually beat me? R: No, dad, You were trying to win. you were sweating(流汗) and panting. 
    F: I'm a damn(really) fine actor.
@@ -92,7 +92,7 @@
 
 46. For more than 300 years, the power of French king was absolute(完全的，绝对的), This meant that he had the power to do anythings.
 
-47. What people will do these days for their pets... A wash and a blow-dry(吹干) -- that goes without saying.But the demanding(苛刻的，事情多的) dog now wants a limo(豪华轿车) along with other creature comforts(身体需求) at a pet hotel and day spa.
+47. What people will do these days for their pets... A wash and a blow-dry(吹干) -- that goes without saying. But the demanding(苛刻的，事情多的) dog now wants a limo(豪华轿车) along with other creature comforts(身体需求) at a pet hotel and day spa.
 
 48. Bunkingham Palace officials are staying mum(don't talk about沉默) about the murder case, and police keeping many details confidential(机密的) as they try to identify the victim and figure out exactly what happened to her.
 
@@ -124,7 +124,7 @@
 
 62. According to the CDC, 2 out of every 3 Americans are considered (thought to be) either overweight or obese, and the trend towards unhealthy habits is starting even younger with nearly twenty percent of children between the age of 6 and 11 considered obese.
 
-63. There're places I'll remeber. All my life, though some have changed. Some forever, not for better. Some have gone and some remain. All these places have their moments with lovers and friends I still can recall. Some are dead and some are living in my life. I've loved them all.
+63. There're places I'll remember. All my life, though some have changed. Some forever, not for better. Some have gone and some remain. All these places have their moments with lovers and friends I still can recall. Some are dead and some are living in my life. I've loved them all.
 
 64. - Douglas, Would you please pass the catsup(a condiment)?
    - The What?
@@ -143,13 +143,13 @@
    - Stop What?  You're talking me in Morse Code. But you know what? Joke's on you 'cuz, I know Morse Code!
    - Hay!
    
-69. American Electric Power is currently(right now) below its 50-day moving avergae of  \$40.28 and below its 200-day MA of \$38.53.
+69. American Electric Power is currently(right now) below its 50-day moving average of  \$40.28 and below its 200-day MA of \$38.53.
 
 70. People born on Fubruary 29th on some previous leap year — also known as "leaplings" — they finally （have the change to/are allow to）get to celebrate their real birthday！
 
 71. You can essentially(basically) opt out(choose) of the new policy by manually deleting your Google web history or by simply not signing(logging) in to sites like Gmail when searching on Google.
 
-72. Everyone who comes into our shop tells us "you have the ferfect life", and we say, "Yeah, you know what, we do, we really do." They go hand in hand（绝配） — books and chocolate.
+72. Everyone who comes into our shop tells us "you have the perfect life", and we say, "Yeah, you know what, we do, we really do." They go hand in hand（绝配） — books and chocolate.
 
 73. I've accomplished more in my life than I've ever thought possible.
 
@@ -191,7 +191,7 @@
 
    I can't go.
 
-   Shane nerver lies, don't trust that.
+   Shane never lies, don't trust that.
 
 88.  There are not the dunes(沙丘) of the Sahara(撒哈拉沙漠). In fact, they are found beyond the Arctic Circle(北极圈) in the permafrost(冻土) of  Russia's north(俄罗斯以北).
 
@@ -201,16 +201,14 @@
 
 91. - My bad(fault). (I'm sorry. I make a mistake.)
    - (You had better/ I hope)Tell me you have good insurance(保险).
-   - Yep' I've got "Allstate".
+   - Yep, I've got "Allstate".
    - Really?
 
-   - The point is, you should get to know a person first. Then judge them. You should never judge a book by its cover. Judge it by the amount of pages. （All that glitters is not gold~）
-
-92. The point is, you should get to know a person first. Then judge them. You should never judge a book bye its cover. Judge it by the amount of page.
+92. The point is, you should get to know a person first. Then judge them. You should never judge a book by its cover. Judge it by the amount of page.（All that glitters is not gold~）
 
 93. I had it in spades(铲子) on both sides(被晒黑了), it came really natural(自然) to me.
 
-94. It(Playing the guitar excellently) takes(requires/costs/spends) a lot of work(pracrice), you have to work every day on it. And then that's not a downside(discouraging/negative aspect). There isn't a downside, really.
+94. It(Playing the guitar excellently) takes(requires/costs/spends) a lot of work(practice), you have to work every day on it. And then that's not a downside(discouraging/negative aspect). There isn't a downside, really.
 
 95. - J：Hello?
 
@@ -219,7 +217,7 @@
    - P：Uh, well, sorry. We're not allowed to do that.
    - J: Oh, I guess you don't want people calling you at home?
    - P：No.
-   - J: Well, now you know how I feel.(click!)
+   - J: Well, now you know how I feel. (click!)
 
 96. As many of you know,
     - Hey, you got anything to eat?
@@ -231,4 +229,6 @@
 98. The cheetah excels at acceleration. It's the sports car of the savannah.
 99. It's only the mediocre(平庸) pupil(student) who does not surpass the master, Leonardo writes. And legend(传说) has it, that Verrocchio, after seeing Leonardo's angel, never painted again.
 
-100. Wether you're new to the world of paddling or a seasoned veteran, you are sure to find this video give padding guidbook helpful in your great to find and exciting rivers to explore.
+100. Whether you're new to the world of paddling(划皮划艇) or a seasoned(经验丰富的) veteran(老兵), you are sure to find this video give padding guidebook helpful in your quest(hunt) to find and exciting rivers to explore.
+101. Why not be safe(不安全)? Why take a chance(冒险)?
+102. That's right! This weekend is Earth Day! Not your birthday, don't get it teisted!  Earth Day. 
