@@ -232,4 +232,11 @@
 100. Whether you're new to the world of paddling(划皮划艇) or a seasoned(经验丰富的) veteran(老兵), you are sure to find this video give padding guidebook helpful in your quest(hunt) to find and exciting rivers to explore.
 101. Why not be safe(不安全)? Why take a chance(冒险)?
 102. That's right! This weekend is Earth Day! Not your birthday, don't get it twisted(扭曲)!  EARTH Day. 
-103. If people fail a test, you can do two things, you can make the people smarter or you can make the test easier.
+103. If people fail(flunk/ get an F on) a test, you can(could) do two things, you can(could) make the people smarter or you can make the test easier.
+104. - Okay，(Are you)ready?
+     - I'm  ready.
+     - 1-1-6-8, Okay, you know what? How about a little phone number rhythm. Huh? you know?  the little bang bang pa, bum-pa, bum-pa. Got it?
+     - I got it. 
+     - Okay.
+     - 1 Yeah, 6 Yup, ~teen...
+     - I already dialed a 6. I can't go back in time and shlip a 1 in.
