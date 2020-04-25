@@ -235,7 +235,7 @@
 103. If people fail(flunk/ get an F on) a test, you can(could) do two things, you can(could) make the people smarter or you can make the test easier.
 104. - Okay，(Are you)ready?
      - I'm  ready.
-     - 1-1-6-8, Okay, you know what? How about a little phone number rhythm. Huh? you know?  the little bang bang pa, bum-pa, bum-pa. Got it?
+     - 1-1-6-8, Okay, you know what? How about a little phone number rhythm. Huh? you know?  the little bom-bug pa, bum-pa, bum-pa. Got it?
      - I got it. 
      - Okay.
      - 1 Yeah, 6 Yup, ~teen...
