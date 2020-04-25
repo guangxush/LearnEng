@@ -240,3 +240,10 @@
      - Okay.
      - 1 Yeah, 6 Yup, ~teen...
      - I already dialed a 6. I can't go back in time and shlip a 1 in.
+
+105. - Alright, what's your name?
+     - I'm Karl Fuentes. 
+     - Karl. Karl with a "K", correct?
+     - Yep, Karl with a "K".
+     - Karl with a "K". A bird in the hand is worth... a million?
+     - No.
