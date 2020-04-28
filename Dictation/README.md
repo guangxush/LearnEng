@@ -245,5 +245,8 @@
      - I'm Karl Fuentes. 
      - Karl. Karl with a "K", correct?
      - Yep, Karl with a "K".
-     - Karl with a "K". A bird in the hand is worth... a million?
+     - Karl with a "K". A bird in the hand is worth...？ 
+     - A million?
      - No.
+
+106. One of his 1st trips will be to the US for a NAATO simmit where he will announce that he is pulling French troops out of Afg hasistan by the end of the year.
