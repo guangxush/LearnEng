@@ -226,27 +226,35 @@
     - Just try them. 
 
 97. We were supposed to meet today, but I missed our appointment, sorry.
+
 98. The cheetah excels at acceleration. It's the sports car of the savannah.
+
 99. It's only the mediocre(平庸) pupil(student) who does not surpass the master, Leonardo writes. And legend(传说) has it, that Verrocchio, after seeing Leonardo's angel, never painted again.
 
 100. Whether you're new to the world of paddling(划皮划艇) or a seasoned(经验丰富的) veteran(老兵), you are sure to find this video give padding guidebook helpful in your quest(hunt) to find and exciting rivers to explore.
+
 101. Why not be safe(不安全)? Why take a chance(冒险)?
+
 102. That's right! This weekend is Earth Day! Not your birthday, don't get it twisted(扭曲)!  EARTH Day. 
+
 103. If people fail(flunk/ get an F on) a test, you can(could) do two things, you can(could) make the people smarter or you can make the test easier.
+
 104. - Okay，(Are you)ready?
-     - I'm  ready.
-     - 1-1-6-8, Okay, you know what? How about a little phone number rhythm. Huh? you know?  the little bom-bug pa, bum-pa, bum-pa. Got it?
-     - I got it. 
-     - Okay.
-     - 1 Yeah, 6 Yup, ~teen...
-     - I already dialed a 6. I can't go back in time and shlip a 1 in.
+   - I'm  ready.
+   - 1-1-6-8, Okay, you know what? How about a little phone number rhythm. Huh? you know?  the little bom-bug pa, bum-pa, bum-pa. Got it?
+   - I got it. 
+   - Okay.
+   - 1 Yeah, 6 Yup, ~teen...
+   - I already dialed a 6. I can't go back in time and shlip a 1 in.
 
 105. - Alright, what's your name?
-     - I'm Karl Fuentes. 
-     - Karl. Karl with a "K", correct?
-     - Yep, Karl with a "K".
-     - Karl with a "K". A bird in the hand is worth...？ 
-     - A million?
-     - No.
+   - I'm Karl Fuentes. 
+   - Karl. Karl with a "K", correct?
+   - Yep, Karl with a "K".
+   - Karl with a "K". A bird in the hand is worth...？ 
+   - A million?
+   - No.
 
-106. One of his 1st trips will be to the US for a NAATO simmit where he will announce that he is pulling French troops out of Afg hasistan by the end of the year.
+106. One of his 1st trips will be to the US for a NATO submit(meeting) where he will announce that he is pulling French troops(soldiers/The French military) out of Afghanistan by the end of the year.
+
+107. When you can't smoke, if you stand and stare out of the window on your own, you're an anti-social friendless idiot. If you stand and stare out of the window on your own with a cigarette, you're a fucking philosopher. 
