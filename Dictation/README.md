@@ -257,4 +257,8 @@
 
 106. One of his 1st trips will be to the US for a NATO submit(meeting) where he will announce that he is pulling French troops(soldiers/The French military) out of Afghanistan by the end of the year.
 
-107. When you can't smoke, if you stand and stare out of the window on your own, you're an anti-social friendless idiot. If you stand and stare out of the window on your own with a cigarette, you're a fucking philosopher. 
+107. When you can't smoke, if you stand and stare out of the window on your own, you're an anti-social friendless idiot. If you stand and stare out of the window on your own with a cigarette, you're a fucking（damn） philosopher. 
+
+108. - Gonna eat that?
+   - Have at it.
+   - Did you just ask my permission before you took my food?
