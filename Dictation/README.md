@@ -259,6 +259,8 @@
 
 107. When you can't smoke, if you stand and stare out of the window on your own, you're an anti-social friendless idiot. If you stand and stare out of the window on your own with a cigarette, you're a fucking（damn） philosopher. 
 
-108. - Gonna eat that?
-   - Have at it.
+108. - Gonna(Are you going to) eat that?
+   - Have at it.(Help yourself./Go head.)
    - Did you just ask my permission before you took my food?
+
+109. One of Switzer land's predominant cities. Basel on the Swiss border of France Germany.
