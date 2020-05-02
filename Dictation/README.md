@@ -263,4 +263,5 @@
    - Have at it.(Help yourself./Go head.)
    - Did you just ask my permission before you took my food?
 
-109. One of Switzer land's predominant cities. Basel on the Swiss border of France Germany.
+109. One of Switzer land's predominant(powerful/famous/domination) cities. Basel on the Swiss border of France and Germany.
+110. Even from very early on when we were just building this thing for, for one school, those was this concept of what it could turn into we just weren't sure then that we would be the ones who did it.
