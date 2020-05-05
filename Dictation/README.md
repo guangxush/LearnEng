@@ -264,4 +264,7 @@
    - Did you just ask my permission before you took my food?
 
 109. One of Switzer land's predominant(powerful/famous/domination) cities. Basel on the Swiss border of France and Germany.
-110. Even from very early on when we were just building this thing for, for one school, those was this concept of what it could turn into we just weren't sure then that we would be the ones who did it.
+
+110. Even from very early on (the beginning) when we were just building this thing for, for one school, there was this concept(idea) of what it(Facebook) could turn into(become). We just weren't sure then that we would be the ones(people/community) who did(succeed) it.
+
+111. Keeping future resources infact means keeping present consumption in check. And that why we promote green ways of living and working.
