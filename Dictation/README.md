@@ -267,4 +267,6 @@
 
 110. Even from very early on (the beginning) when we were just building this thing for, for one school, there was this concept(idea) of what it(Facebook) could turn into(become). We just weren't sure then that we would be the ones(people/community) who did(succeed) it.
 
-111. Keeping future resources infact means keeping present consumption in check. And that why we promote green ways of living and working.
+111. Keeping future resources intact(ok/complete) means keeping present consumption in check. And that why we promote green ways of living and working.
+
+112. It is maddening --- texting while walking.  One own is saying it's time to level fines against people who walk into the streets heads down -- everybody else trying to dodge them.
