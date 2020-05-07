@@ -269,4 +269,7 @@
 
 111. Keeping future resources intact(ok/complete) means keeping present consumption in check. And that why we promote green ways of living and working.
 
-112. It is maddening --- texting while walking.  One own is saying it's time to level fines against people who walk into the streets heads down -- everybody else trying to dodge them.
+112. It is maddening --- texting while walking.  One town is saying it's time to level fines against (give fines to) people who walk into the streets heads down -- everybody else trying to dodge them.
+
+113. Post-It Super Stick Notes, hold on stronger and longer, but of course remove cleanly.
+
