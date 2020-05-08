@@ -271,5 +271,7 @@
 
 112. It is maddening --- texting while walking.  One town is saying it's time to level fines against (give fines to) people who walk into the streets heads down -- everybody else trying to dodge them.
 
-113. Post-It Super Stick Notes, hold on stronger and longer, but of course remove cleanly.
+113. Post-It Super Stick Notes hold on(stay stick) stronger and longer, but of course remove cleanly.
+
+114. When it cames to figuring out feats of strength, it is all in the fingers here!
 
