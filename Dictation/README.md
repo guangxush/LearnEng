@@ -273,5 +273,7 @@
 
 113. Post-It Super Stick Notes hold on(stay stick) stronger and longer, but of course remove cleanly.
 
-114. When it cames to figuring out feats of strength, it is all in the fingers here!
+114. When it cames to(If we want to) figuring out feats of strength, it is all in the fingers here!
+
+115. 
 
