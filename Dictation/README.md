@@ -273,7 +273,10 @@
 
 113. Post-It Super Stick Notes hold on(stay stick) stronger and longer, but of course remove cleanly.
 
-114. When it cames to(If we want to) figuring out feats of strength, it is all in the fingers here!
+114. When it cames to(If we want to) figuring out feats(功绩) of strength, it is all in the fingers here!
 
-115. 
+115. - I think I could use some balck coffee?
+   - What size would you like?
+   - Um, I've got a lot of ponder, so I think a large.
+   - I'm afraid we don't have large, sir. We have piccollo, macho, mucho and mucho macho!
 
