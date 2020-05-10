@@ -278,5 +278,8 @@
 115. - I think I could use some black coffee?
    - What size would you like?
    - Um, I've got a lot of ponder, so I think a large.
-   - I'm afraid we don't have large, sir. We have piccollo, macho, mucho and mucho macho!
+   - I'm afraid we don't have large, sir. We have piccolo, macho, mucho and mucho macho!
+
+116. - I don't trust anyone anymore.
+     - I don't blame you. I'm not like those so-called fair weather friends of yours. You can believe in me.
 
