@@ -1,5 +1,23 @@
 ## TED
 
+### Bilibili's May 4th Youth Day Video sparks discussion on social media
+
+On the evening of May 3, CCTV broadcast a youth-themed video from Bilibili, a Chinese online entertainment platform, before the "Xinwen Lianbo". This was the first time a Bilibili video has appeared on CCTV's prime time. This video, which lasted less than four minutes, was posted by six mainstream media outlets in conjunction with Bilibili and has been widely discussed on social media since then.
+
+The video is narrated by He Bing, a famous Chinese actor, and features inspiring messages for today's younger generation. Composed of clips and images uploaded by Bilibili users, the video shows young people's struggle to express themselves and embrace the world.
+
+After the video was posted by Bilibili, it was forwarded to social platforms such as Weibo and WeChat and sparked a lot of discussions.
+
+Phrases from the video such as "Because the best scenery in a country is the youth of the country" have struck a chord with many young people. On May 4, China's Youth Day, many netizens also said the video expressed their fellings at their age.
+
+In addition to Bilibili, many other Chinese media platforms also released the Youth Day-related content. CCTV News, for example, released illustrations showing young people fighting against the CONVID-19 epidemic. China is slowly recovering from CONID-19, thanks to the effects of many young Chinese born in the 1990s and 2000s, who may be medical workers, journalists, ordinary infrastructure workers, or even food delivery people and couriers who stayed busy during the outbreak. 
+
+More than 100 years ago, the youth of China bore the brunt to save China, more than 100 years later, in the face of unknown virus, the youth still lead the charge.
+
+Bilibili, China's most popular website for animation, conic, and game videos.
+
+Bilibili, an online hub for fans of comics and games.
+
 ### Why did we know the autistic is wrong?
 
 We know that the Earth is round, Everything we understand about this planet is grounded in the fundamentl assumption that the Earth is round. But there was a time not all that long ago. when we knew that the Earth was flat. That's called a paradigm shift. Our basic assumptions about the Earth changed because we had evidence showing that our previous assumptions were wrong. Just like the shape of the Earth there are assumptions about autism, too. Most people understand autism throught medical assumptions. They understand autism as a medical condition a disorder, even as a tragedy. In the medical paradigm, we're taught to belieeve that there's a correct way to develop neurogically that there's a right way for our brains to work the 'normal' way, and that any other way of developing is wrong, and needs to be treated and fixed. In 2011, when I was 25 years old, I was diagnosed with autism, and It wasn't a tragedy. It was the best thing that's ever happened to me. Finding out that I'm autistic brought me an overwhelming sense of relief. My whole life, up to that point, finally made sense. My paradigm about myself shifted. I wasn't failed neurotupical person. I was a perfectly good autistic person. After my diagnosis I did what most of us would probably do. I went to Dr.Google and I started researching autism. Eventually, I upgraded from Dr.Google. Eventually, I upgraded from Dr.Google. I did my Ph.D in autism become a doctor myself and today I'm proud to be one of a growing number of openly autistic people working in autism research. But in those early days. I wasn't running a complex research project. I was just trying to learn more about myself. And learn about myself, I did. I was bombarded with information. I was bombared with information about my deficits. Autism causes defliccits in social interaction, deficits in communication, restricted and repetitive behaviors sensory processing deficits. For me, that information just didn't make sense. Finding out that I'm autistic had completely changed my life for the better. How could something that was so positive for me be such a bad thing. So, I went baccck to Dr.Google. But this time I dug deeper I started to find information about autism that was written, not by researchers or other professionals but by actualautistic people. 
