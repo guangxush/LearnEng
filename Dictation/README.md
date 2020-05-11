@@ -281,5 +281,11 @@
    - I'm afraid we don't have large, sir. We have piccolo, macho, mucho and mucho macho!
 
 116. - I don't trust anyone anymore.
-     - I don't blame you. I'm not like those so-called fair weather friends of yours. You can believe in me.
+     - I don't blame you. I'm not like those so-called(as they say) fair-weather friends(酒肉朋友) of yours. You can believe in me.
+
+117. - Ted, I just wanted to ask you, do you believe in an after life?
+     - Do I what?
+     - Do you believe in an after life?
+     - Well, Dougal, generally speaking, priests tend to have a very strong belief in the after life.
+     - Boy, I wish I had your faith, Ted!
 
