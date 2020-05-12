@@ -286,6 +286,8 @@
 117. - Ted, I just wanted to ask you, do you believe in an after life?
      - Do I what?
      - Do you believe in an after life?
-     - Well, Dougal, generally speaking, priests tend to have a very strong belief in the after life.
+     - Well, Dougal, generally speaking(usually), priests tend to(usually) have a very strong belief in the after life.
      - Boy, I wish I had your faith, Ted!
+
+118. These young mountain bikers are spending their afternoon racing on the trails(paths).
 
