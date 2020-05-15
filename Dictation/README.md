@@ -291,4 +291,15 @@
 
 118. These young mountain bikers are spending their afternoon racing on the trails(paths).
 119. It's a rainy day  today, so I think I might do something that's been needing to be done for a while.
+120. Well, I guess I should remind you, if you're freaking out(吓坏了) right now, that this isn't happened... yet.
+121. - Hey.
+     - Hey.
+     - How come you're wearing a hat?
+     - I got a haircut.
+     - Oh yeah? Can I see it?
+     - Eh, there's nothing to see.
+     - Come on, Let me see it!
+     - Forget it!
+     - Come on!
+     - All right...
 
