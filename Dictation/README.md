@@ -292,14 +292,16 @@
 118. These young mountain bikers are spending their afternoon racing on the trails(paths).
 119. It's a rainy day  today, so I think I might do something that's been needing to be done for a while.
 120. Well, I guess I should remind you, if you're freaking out(吓坏了) right now, that this isn't happened... yet.
-121. - Hey.
-     - Hey.
-     - How come you're wearing a hat?
-     - I got a haircut.
+121. - Hey！
+     - Hey！
+     - How come you're(What are you/ Why aree you) wearing a hat?
+     - I got a(gotta) haircut.
      - Oh yeah? Can I see it?
      - Eh, there's nothing to see.
      - Come on, Let me see it!
      - Forget it!
      - Come on!
      - All right...
+
+122. The Amazon forest, which blankets 40% of Brazil's territory, is the home to more than 1800 species of birds and several hundred species of mammals. And more that 1500 species of aquatic creatures inhabit its countless miles for waterways. 
 
