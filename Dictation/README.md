@@ -304,4 +304,5 @@
      - All right...
 
 122. The Amazon Forest, which blankets 40% of Brazil's territory(领土), is the home to more than 1800 species of birds and several hundred species of mammals(哺乳动物). And more than 1500 species of aquatic(水生生物) creatures inhabit(栖息地) its countless miles for waterways. 
+123. Usually we just hang out, you know,  maybe we will go for a family hike or something. I don't know where, you know, we'll be in Iceland that day, so we'll see what that does. We're gonna kick back on Sunday, so I don't know what the plans are.
 
