@@ -306,5 +306,6 @@
 122. The Amazon Forest, which blankets 40% of Brazil's territory(领土), is the home to more than 1800 species of birds and several hundred species of mammals(哺乳动物). And more than 1500 species of aquatic(水生生物) creatures inhabit(栖息地) its countless miles for waterways. 
 123. Usually we just hang out(to play/relax), you know,  maybe we will go for a family hike or something. I don't know where, you know, we'll be in Iceland that day, so we'll see what that does. We're gonna kick back on Sunday, so I don't know what the plans are.
 124. He was about 600\# at that point -- 640 or so pounds. He got down to about 480 at one point. And, um, he died at 1000 lbs(weight/pounds). Oh, My God.
-125. Pre-blessed food! we pray for it, so you don't have to.
+125. Pre-blessed(祝福/ To cook) food! we pray(祈祷/work) for it, so you don't have to.
+126. A 68-year-old grandmother taunted by four children on a school bus -- all of it caught on tape.
 
