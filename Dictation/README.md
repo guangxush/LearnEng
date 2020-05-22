@@ -308,5 +308,6 @@
 124. He was about 600\# at that point -- 640 or so pounds. He got down to about 480 at one point. And, um, he died at 1000 lbs(weight/pounds). Oh, My God.
 125. Pre-blessed(祝福/ To cook) food! we pray(祈祷/work) for it, so you don't have to.
 126. A 68-year-old grandmother taunted(嘲笑/嘲弄) by four children on a school bus -- all of it caught on tape(录像带).
-127. Tesla says the price ranges from just under 50000 to about $100000 depending on the battery(电池) size and options you choose.
+127. Tesla says the price ranges from just under 50000 to about $100000 (flutuate vary)depending on the battery(电池) size and options you choose.
+128. 
 
