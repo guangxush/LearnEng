@@ -309,5 +309,5 @@
 125. Pre-blessed(祝福/ To cook) food! we pray(祈祷/work) for it, so you don't have to.
 126. A 68-year-old grandmother taunted(嘲笑/嘲弄) by four children on a school bus -- all of it caught on tape(录像带).
 127. Tesla says the price ranges from just under 50000 to about $100000 (flutuate vary)depending on the battery(电池) size and options you choose.
-128. 
+128. One curious 9-year-old girl wrote McDonaddd's width that burning questions: "Why does your food look different in the advertising than what's in the store?"
 
