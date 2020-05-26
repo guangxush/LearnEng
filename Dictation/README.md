@@ -310,4 +310,5 @@
 126. A 68-year-old grandmother taunted(嘲笑/嘲弄) by four children on a school bus -- all of it caught on tape(录像带).
 127. Tesla says the price ranges from just under 50000 to about $100000 (flutuate vary)depending on the battery(电池) size and options you choose.
 128. One curious(好奇心), 9-year-old girl wrote McDonald's width that burning questions(严峻的问题): "Why does your food look different in the advertising than what's in the store?"
-129. Respecting the dignity of a human being is giving that person the freedom to choose.
+129. Respecting(Admire/Appreciating/Recognizing) the dignity(merit/worthiness/importance/honor) of a human being is giving that person the freedom to choose.
+130. Spain's talented Midfielders utilized their qucik-touch passing strategy. Known back home as "tiki toka", to contribute to all 4 goals.
