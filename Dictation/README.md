@@ -312,15 +312,15 @@
 128. One curious(好奇心), 9-year-old girl wrote McDonald's width that burning questions(严峻的问题): "Why does your food look different in the advertising than what's in the store?"
 129. Respecting(Admire/Appreciating/Recognizing) the dignity(merit/worthiness/importance/honor) of a human being is giving that person the freedom to choose.
 130. Spain's talented Midfielders utilized(used/employed/took advantage of) their qucik-touch passing strategy. Known back home as "tiki toka", to contribute(provide/give them) to all 4 goals.
-131. - There! see? Piece of cake.
-- How everybody doing back them?
-- PJ keeps poking me with his rib.
-- It's called breathing.
-- Honey, Gabe doesn't have a seatbelt.
-- Or a seat.
-- He'll be fine, Hey. Charlie, are you comfortable?
-- No.
-- Bob?
-- Yes?
-- New Car?
-- New car.
+131. - There! see? (It's a)Piece of cake.
+   - How everybody doing back them?
+   - PJ keeps poking(刺/戳) me with his rib.
+   - It's called breathing.
+   - Honey, Gabe doesn't have a seatbelt.
+   - Or a seat.
+   - He'll be fine, Hey. Charlie, are you comfortable?
+   - No.
+   - Bob?
+   - Yes?
+   - New Car?
+   - New car.
