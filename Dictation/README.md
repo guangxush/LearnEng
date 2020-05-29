@@ -1,5 +1,5 @@
 1. Mother Teresa, who received the Nobel Peace Price for her work on behalf of the poor, dies in Calcutta India.
-  She was 87 years old.
+    She was 87 years old.
 
 2. Jerry, What time do you have? I have at 5 o'clock.
 
@@ -86,7 +86,7 @@
 43. E: Hey, George, you know(um), my friend goes to a psychics(巫师)? G: Really? E: Uh-huh, we should go some time. G: I'd love to go. Make an appointment.
 
 44. R: Dad, I beat you. Don't you remember the Ray man Spinball? F: Ray, I learned to play in Korea, from Koreans. Do you think some punk kid's gonna actually beat me? R: No, dad, You were trying to win. you were sweating(流汗) and panting. 
-   F: I'm a damn(really) fine actor.
+      F: I'm a damn(really) fine actor.
 
 45. Hey, is it cold out(outside)?
 
@@ -132,7 +132,7 @@
    - You mean the ketchup(番茄酱)?
    - Educated people pronounce it cat-sup.
    - Not if they want me to pass it to them.
-   
+
 65. February 18, 1885 Mark Twain's "The Adventures of Huckleberry Finn ", one of the great American novels, is first published in the United State.
 
 66. 86% of all doctor visits and illness, statistically, are based on stress.
@@ -142,7 +142,7 @@
 68. - Stop it ?
    - Stop What?  You're talking me in Morse Code. But you know what? Joke's on you 'cuz, I know Morse Code!
    - Hay!
-   
+
 69. American Electric Power is currently(right now) below its 50-day moving average of  \$40.28 and below its 200-day MA of \$38.53.
 
 70. People born on Fubruary 29th on some previous leap year — also known as "leaplings" — they finally （have the change to/are allow to）get to celebrate their real birthday！
@@ -168,7 +168,7 @@
    - No, no, no. The cut-off time is 10:30.
    - 10:00. You don't call after 10:00.
    - No, no, no, 10:30!
-   
+
 79. Stand firm for what you believe in until and unless logic and experience prove you wrong. Remember, when the emperor looks naked, the emperor is naked. The truth and a lie are not sort of(kind of) the same thing.
 
 80. Olives are the gold in Andalucia. Spain is the world's biggest olive oil producer, and Andalucia accounts for（makes/ produces） 80% of Spanish oil.
@@ -313,14 +313,16 @@
 129. Respecting(Admire/Appreciating/Recognizing) the dignity(merit/worthiness/importance/honor) of a human being is giving that person the freedom to choose.
 130. Spain's talented Midfielders utilized(used/employed/took advantage of) their qucik-touch passing strategy. Known back home as "tiki toka", to contribute(provide/give them) to all 4 goals.
 131. - There! see? (It's a)Piece of cake.
-   - How everybody doing back them?
-   - PJ keeps poking(刺/戳) me with his rib.
-   - It's called breathing.
-   - Honey, Gabe doesn't have a seatbelt.
-   - Or a seat.
-   - He'll be fine, Hey. Charlie, are you comfortable?
-   - No.
-   - Bob?
-   - Yes?
-   - New Car?
-   - New car.
+     - How everybody doing back them?
+     - PJ keeps poking(刺/戳) me with his rib.
+     - It's called breathing(呼吸).
+     - Honey, Gabe doesn't have a seatbelt(安全带 ).
+     - Or a seat.
+     - He'll be fine, Hey. Charlie, are you comfortable?
+     - No.
+     - Bob?
+     - Yes?
+     - New Car?
+     - New car.
+132.  To spank or not to spank?  It's a controversy that creates a huge divide among parents.
+
