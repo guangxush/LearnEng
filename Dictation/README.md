@@ -282,13 +282,11 @@
 
 116. - I don't trust anyone anymore.
      - I don't blame you. I'm not like those so-called(as they say) fair-weather friends(酒肉朋友) of yours. You can believe in me.
-
 117. - Ted, I just wanted to ask you, do you believe in an after life?
      - Do I what?
      - Do you believe in an after life?
      - Well, Dougal, generally speaking(usually), priests tend to(usually) have a very strong belief in the after life.
      - Boy, I wish I had your faith, Ted!
-
 118. These young mountain bikers are spending their afternoon racing on the trails(paths).
 119. It's a rainy day  today, so I think I might do something that's been needing to be done for a while.
 120. Well, I guess I should remind you, if you're freaking out(吓坏了) right now, that this isn't happened... yet.
@@ -302,7 +300,6 @@
      - Forget it!
      - Come on!
      - All right...
-
 122. The Amazon Forest, which blankets 40% of Brazil's territory(领土), is the home to more than 1800 species of birds and several hundred species of mammals(哺乳动物). And more than 1500 species of aquatic(水生生物) creatures inhabit(栖息地) its countless miles for waterways. 
 123. Usually we just hang out(to play/relax), you know,  maybe we will go for a family hike or something. I don't know where, you know, we'll be in Iceland that day, so we'll see what that does. We're gonna kick back on Sunday, so I don't know what the plans are.
 124. He was about 600\# at that point -- 640 or so pounds. He got down to about 480 at one point. And, um, he died at 1000 lbs(weight/pounds). Oh, My God.
@@ -324,5 +321,6 @@
      - Yes?
      - New Car?
      - New car.
-132.  To spank or not to spank?  It's a controversy that creates a huge divide among parents.
+132.  To spank(打) or not to spank?  It's a controversy(争论) that creates a huge divide(分歧) among parents.
+133. If  you‘re a suffferer of fear of the No 13, you may  find yourself going out of your way to be extra  careful on  Friday the 13th.
 
