@@ -322,5 +322,6 @@
      - New Car?
      - New car.
 132.  To spank(打) or not to spank?  It's a controversy(争论) that creates a huge divide(分歧) among parents.
-133. If  you‘re a suffferer of fear of the No 13, you may  find yourself going out of your way to be extra  careful on  Friday the 13th.
+133. If you‘re a sufferer of(allergy过敏/敏感) fear of the No 13(bad luck number), you may find yourself(automatically) going out of your way to(doing everything) be extra careful(cautious) on  Friday the 13th.
+134. Roy is the type of a friend you never introduce yourother friends or bring in to your family. He is ... look at his eyes -- brown -- full of shit to shift, Always... just bullshit all thetime.
 
