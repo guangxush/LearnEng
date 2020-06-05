@@ -325,5 +325,6 @@
 133. If you‘re a sufferer of(allergy过敏/敏感) fear of the No 13(bad luck number), you may find yourself(automatically) going out of your way to(doing everything) be extra careful(cautious) on  Friday the 13th.
 134. Roy is the type of a friend you never introduce your other friends or bring in to your family. He is ... look at his eyes -- brown -- full of shit! Always... just bullshit all thetime.
 135. Again, rumbles(隆隆) of thunder(打雷); we've got the dangerous cloud-to-ground lightning(闪电), brief(短暂的) heavy rain,  gusty(阵) winds and even the change of some hail(冰雹).
-136. I rish coffee, It's the only drink in the world that provider in a single glass all four essential food groups: alchol, caffeine, sugar and fat.
+136. I rish(讨厌) coffee, It's the only drink in the world that provides in a single glass(cup) all four essential(潜在的/important/vital) food groups: alchol, caffeine, sugar and fat.
+137. If you were to wrap up everything -- all your concepts-- into one idea, what would that be?  Educate and obey your conscience.
 
