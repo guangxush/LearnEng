@@ -67,11 +67,12 @@
       <workItem from="1584922250481" duration="6602000" />
       <workItem from="1585006210935" duration="12898000" />
       <workItem from="1585095998008" duration="18000" />
+      <workItem from="1590292338083" duration="1190000" />
     </task>
     <servers />
   </component>
   <component name="TypeScriptGeneratedFilesManager">
-    <option name="version" value="1" />
+    <option name="version" value="2" />
   </component>
   <component name="WindowStateProjectService">
     <state x="458" y="223" key="#com.intellij.openapi.updateSettings.impl.PluginUpdateInfoDialog" timestamp="1584665500980">

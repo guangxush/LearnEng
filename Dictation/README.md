@@ -282,14 +282,19 @@
 
 116. - I don't trust anyone anymore.
      - I don't blame you. I'm not like those so-called(as they say) fair-weather friends(酒肉朋友) of yours. You can believe in me.
+   
 117. - Ted, I just wanted to ask you, do you believe in an after life?
      - Do I what?
      - Do you believe in an after life?
      - Well, Dougal, generally speaking(usually), priests tend to(usually) have a very strong belief in the after life.
      - Boy, I wish I had your faith, Ted!
+   
 118. These young mountain bikers are spending their afternoon racing on the trails(paths).
+
 119. It's a rainy day  today, so I think I might do something that's been needing to be done for a while.
+
 120. Well, I guess I should remind you, if you're freaking out(吓坏了) right now, that this isn't happened... yet.
+
 121. - Hey！
      - Hey！
      - How come you're(What are you/ Why aree you) wearing a hat?
@@ -300,15 +305,25 @@
      - Forget it!
      - Come on!
      - All right...
+   
 122. The Amazon Forest, which blankets 40% of Brazil's territory(领土), is the home to more than 1800 species of birds and several hundred species of mammals(哺乳动物). And more than 1500 species of aquatic(水生生物) creatures inhabit(栖息地) its countless miles for waterways. 
+
 123. Usually we just hang out(to play/relax), you know,  maybe we will go for a family hike or something. I don't know where, you know, we'll be in Iceland that day, so we'll see what that does. We're gonna kick back on Sunday, so I don't know what the plans are.
+
 124. He was about 600\# at that point -- 640 or so pounds. He got down to about 480 at one point. And, um, he died at 1000 lbs(weight/pounds). Oh, My God.
+
 125. Pre-blessed(祝福/ To cook) food! we pray(祈祷/work) for it, so you don't have to.
+
 126. A 68-year-old grandmother taunted(嘲笑/嘲弄) by four children on a school bus -- all of it caught on tape(录像带).
+
 127. Tesla says the price ranges from just under 50000 to about $100000 (flutuate vary)depending on the battery(电池) size and options you choose.
+
 128. One curious(好奇心), 9-year-old girl wrote McDonald's width that burning questions(严峻的问题): "Why does your food look different in the advertising than what's in the store?"
+
 129. Respecting(Admire/Appreciating/Recognizing) the dignity(merit/worthiness/importance/honor) of a human being is giving that person the freedom to choose.
+
 130. Spain's talented Midfielders utilized(used/employed/took advantage of) their qucik-touch passing strategy. Known back home as "tiki toka", to contribute(provide/give them) to all 4 goals.
+
 131. - There! see? (It's a)Piece of cake.
      - How everybody doing back them?
      - PJ keeps poking(刺/戳) me with his rib.
@@ -321,10 +336,25 @@
      - Yes?
      - New Car?
      - New car.
-132.  To spank(打) or not to spank?  It's a controversy(争论) that creates a huge divide(分歧) among parents.
+   
+132. To spank(打) or not to spank?  It's a controversy(争论) that creates a huge divide(分歧) among parents.
+
 133. If you‘re a sufferer of(allergy过敏/敏感) fear of the No 13(bad luck number), you may find yourself(automatically) going out of your way to(doing everything) be extra careful(cautious) on  Friday the 13th.
+
 134. Roy is the type of a friend you never introduce your other friends or bring in to your family. He is ... look at his eyes -- brown -- full of shit! Always... just bullshit all thetime.
+
 135. Again, rumbles(隆隆) of thunder(打雷); we've got the dangerous cloud-to-ground lightning(闪电), brief(短暂的) heavy rain,  gusty(阵) winds and even the change of some hail(冰雹).
+
 136. I rish(讨厌) coffee, It's the only drink in the world that provides in a single glass(cup) all four essential(潜在的/important/vital) food groups: alchol, caffeine, sugar and fat.
-137. If you were to wrap up everything -- all your concepts-- into one idea, what would that be?  Educate and obey your conscience.
+
+137. If you were to wrap up(sum up/boil down/summarize总结) everything -- all your concepts(hypotheses/概念；假设)-- into one idea, what would that(sentence) be?  Educate(Teach) and obey(follow) your conscience(moral/sense/sense of knowing right and wrong).
+
+138. - A: Why are you laughing?
+   - B: I can't go on.
+   - A: Why? What have I done? Come on, tell me what have I done?
+   - B: No, I like you account. I was laughting at how you said "I'm gonna ask you" you said. "I'm gonna ask you." I like it.
+   - A: Can you do an English accent?
+   - B: A bit. Nice to meet you.
+   - A: It's nice to meet you as well.
+   - B: A nice, beautiful interview.
 
