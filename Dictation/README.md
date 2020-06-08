@@ -352,9 +352,11 @@
 138. - A: Why are you laughing?
    - B: I can't go on.
    - A: Why? What have I done? Come on, tell me what have I done?
-   - B: No, I like you account. I was laughting at how you said "I'm gonna ask you" you said. "I'm gonna ask you." I like it.
+   - B: No, I like you account. I was laughting at how you said "I'm gonna ask you" you said. "I'm gonna ask you." I like it.`
    - A: Can you do an English accent?
    - B: A bit. Nice to meet you.
    - A: It's nice to meet you as well.
    - B: A nice, beautiful interview.
+
+139. Gun(枪支) sales in Colorado(科罗拉多州) have surged(激增).
 
