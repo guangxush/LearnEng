@@ -358,5 +358,11 @@
    - A: It's nice to meet you as well.
    - B: A nice, beautiful interview.
 
-139. Gun(枪支) sales in Colorado(科罗拉多州) have surged(激增).
+139. Gun(枪支) sales in Colorado(科罗拉多州) have surged(激增/increased/gone through the roof/ceiling/expolored/skyrocketed/soared/shot up/takend off).
+
+     7 Hs(he her him his had has have) H不发音
+
+140. There we are(go/ Everything is okay). Disaster (has been) averted(avoided). Thank you. You got a bit(little) more TV(excitement/entertainment) there than you were expecting(anticipating).
+
+141. It sort of turned from just a simple idea into what's now a phenomemon. And we kind of think that it's gonna sprend around the country. Good,  bad or otherwise!
 
