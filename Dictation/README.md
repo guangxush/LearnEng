@@ -364,5 +364,7 @@
 
 140. There we are(go/ Everything is okay). Disaster (has been) averted(avoided). Thank you. You got a bit(little) more TV(excitement/entertainment) there than you were expecting(anticipating).
 
-141. It sort of turned from just a simple idea into what's now a phenomemon. And we kind of think that it's gonna sprend around the country. Good,  bad or otherwise!
+141. It sort of turned from just a simple idea into what's now a phenomenon. And we kind of think that it's gonna spread around the country. Good,  bad or otherwise!
+
+142. I want short back and side. But nothing off the top. Whatever you do, don't touch the top. And make it snappy. I have a plan to catch.
 
