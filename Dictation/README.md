@@ -366,5 +366,8 @@
 
 141. It sort of turned from just a simple idea into what's now a phenomenon. And we kind of think that it's gonna spread around the country. Good,  bad or otherwise!
 
-142. I want short back and side. But nothing off the top. Whatever you do, don't touch the top. And make it snappy. I have a plan to catch.
+142. I want short back and side. But nothing off the top. Whatever(No matter what) you do(remember), don't touch the top. And make it snappy(瞬间/do it quick). I have a plane(bus/train) to catch(reservation/预约，保留).
 
+143. What speed(How fast) are you going on the motorway(highway/freeway/expressway)? I'm going 75 miles an(per) hour.
+
+144. High inside the Arctic Circle in one of the most unforgiving environments on the planet two teams of paleontologists in vegotiate a  70-million-year-old mystery. They've unearthed dozens of dinosaurs.
