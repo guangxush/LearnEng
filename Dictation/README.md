@@ -370,4 +370,10 @@
 
 143. What speed(How fast) are you going on the motorway(highway/freeway/expressway)? I'm going 75 miles an(per) hour.
 
-144. High inside the Arctic Circle in one of the most unforgiving environments on the planet two teams of paleontologists in vegotiate a  70-million-year-old mystery. They've unearthed dozens of dinosaurs.
+144. High inside the Arctic Circle, in one of the most unforgiving environments on the planet two teams of paleontologists investigate a 70-million-year-old mystery. They've unearthed dozens of dinosaurs.
+
+145. - George: I snapped. It was the last straw.
+- Jerry: So, what are you gonna do now? you gonna look for something else in real estate?
+- George: Nobody's hiring now. The market's terrible.
+
+
