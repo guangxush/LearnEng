@@ -373,7 +373,7 @@
 144. High inside the Arctic Circle, in one of the most unforgiving environments on the planet two teams of paleontologists investigate a 70-million-year-old mystery. They've unearthed dozens of dinosaurs.
 
 145. - George: I snapped(blew up/become angry). It was the last straw(稻草).
-- Jerry: So, what are(do) you gonna(going to) do now? You gonna look for something else in real estate(房地产)?
-- George: Nobody's hiring now. The market's terrible.
-
+     - Jerry: So, what are(do) you gonna(going to) do now? You gonna look for something else in real estate(房地产)?
+     - George: Nobody's hiring now. The market's terrible.
 146. Edmonton's a surprisingly diverse city -- nearly one in five people here were born in another country.
+147. 
