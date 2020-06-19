@@ -376,4 +376,4 @@
      - Jerry: So, what are(do) you gonna(going to) do now? You gonna look for something else in real estate(房地产)?
      - George: Nobody's hiring now. The market's terrible.
 146. Edmonton's a surprisingly diverse city -- nearly one in five people here were born in another country.
-147. 
+147. There are satisfyingly crunchy(松脆). Chocolately  sweet, and gooeylicious(黏糊的).
