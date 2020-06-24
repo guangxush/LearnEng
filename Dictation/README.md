@@ -378,4 +378,5 @@
 146. Edmonton's a surprisingly diverse city -- nearly one in five people here were born in another country.
 147. They're satisfyingly crunchy(松脆). Chocolately  sweet, and gooeylicious(黏糊的).
 148. It shouldn't take too long(require too much time). I'd say(guess) maybe oh... 4 hours. Really, though, Jerry, there's not that much!
-149. It's time to got your weekend back and turn your "To do" list into a "To done" list! Ace, that helpful place.
+149. It's time to got your weekend back and turn your "To do" list into a "To done" list! Ace, the helpful place.
+150. People say that the word "orange" doesn't rhyme with anything. I can think of a lot of things that rhyme with orange. What rhymes with orange? I put my orange 4-inch door hinge in storage and ate porridge with George!
