@@ -384,6 +384,6 @@
 
 149. It's time to got your weekend back and turn your "To do" list into a "To done" list! Ace, the helpful place.
 
-150. People say that the word "orange" doesn't rhyme with anything. I can think of a lot of things that rhyme with orange. What rhymes with orange? I put my orange 4-inch door hinge in storage and ate porridge with George!
+150. People say that the word "orange" doesn't rhyme with anything. I can think of a lot of things that rhyme with orange. What rhymes with orange? I put my orange 4-inch door hinge in storage(储藏室) and ate porridge with George!
 
-151. hello world
+151. What if every single person on earth jumped at the exact same time? Could it cause an earthquake or would we not even be able to tell?
