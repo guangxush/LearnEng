@@ -386,4 +386,6 @@
 
 150. People say that the word "orange" doesn't rhyme with anything. I can think of a lot of things that rhyme with orange. What rhymes with orange? I put my orange 4-inch door hinge in storage(储藏室) and ate porridge with George!
 
-151. What if every single person on earth jumped at the exact same time? Could it cause an earthquake or would we not even be able to tell?
+151. What if every single person on earth jumped at the exact same time? Could it cause an earthquake or would we not even be able to tell?(I didn't notice any change/I can't tell the difference)
+
+152. A search party of 7 -- mostly strangers headed out. When they found Missy, she'd been marooned on the mountain for 8 days. Her paws were all torn up and bloody... She seemed crippled. It seems like it was basically over.
