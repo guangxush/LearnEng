@@ -388,4 +388,6 @@
 
 151. What if every single person on earth jumped at the exact same time? Could it cause an earthquake or would we not even be able to tell?(I didn't notice any change/I can't tell the difference)
 
-152. A search party of 7 -- mostly strangers headed out. When they found Missy, she'd been marooned on the mountain for 8 days. Her paws were all torn up and bloody... She seemed crippled. It seems like it was basically over.
+152. A search party(a group of people) of 7 -- mostly strangers headed out(took off/left/departed). When they found Missy(the name of the dog), she'd been marooned(left alone/abandon) on the mountain for 8 days. Her paws(爪子) were all torn(cut) up and bloody... She seemed crippled(lame). It(The prognosis) seems like it was basically over(died).
+
+153. There was a time where I was really obsessed with animals and I wanted to be like a dolphin trainer. But I don't know if I would have been able to do that 'cuz I'm kind of scared of the water!
