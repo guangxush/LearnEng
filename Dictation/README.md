@@ -390,4 +390,6 @@
 
 152. A search party(a group of people) of 7 -- mostly strangers headed out(took off/left/departed). When they found Missy(the name of the dog), she'd been marooned(left alone/abandon) on the mountain for 8 days. Her paws(爪子) were all torn(cut) up and bloody... She seemed crippled(lame). It(The prognosis) seems like it was basically over(died).
 
-153. There was a time where I was really obsessed with animals and I wanted to be like a dolphin trainer. But I don't know if I would have been able to do that 'cuz I'm kind of scared of the water!
+153. There was a time(period in my life) where(when) I was really obsessed(痴迷、着魔) with animals and I wanted to be like(become) a dolphin trainer. But I don't know if I would have been able to do that 'cuz(because) I'm kind of scared(害怕afraid) of the water!
+
+154. Dreams don't have a one-side-fits-all(一刀切) meaning. But here are the most broad interpretations of the most common ones.
