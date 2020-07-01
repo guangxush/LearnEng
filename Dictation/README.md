@@ -392,4 +392,6 @@
 
 153. There was a time(period in my life) where(when) I was really obsessed(痴迷、着魔) with animals and I wanted to be like(become) a dolphin trainer. But I don't know if I would have been able to do that 'cuz(because) I'm kind of scared(害怕afraid) of the water!
 
-154. Dreams don't have a one-side-fits-all(一刀切) meaning. But here are the most broad interpretations of the most common ones.
+154. Dreams don't have a one-side-fits-all(universal) meaning. But here are the most broad interpretations(解释) of the most common ones.
+
+155. We are in the process of creating an extreme sport. And so these guys are flipping and flying in the air. Doing stunts and grabs and flips and spins and tricks just like the skateboard or the bike or the surfboard or anything like that.
