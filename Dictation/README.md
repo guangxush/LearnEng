@@ -394,4 +394,6 @@
 
 154. Dreams don't have a one-side-fits-all(universal) meaning. But here are the most broad interpretations(解释) of the most common ones.
 
-155. We are in the process of creating an extreme sport. And so these guys are flipping and flying in the air. Doing stunts and grabs and flips and spins and tricks just like the skateboard or the bike or the surfboard or anything like that.
+155. We are in the process of(doing the) creating an extreme sport. And so these guys are flipping and flying in the air. Doing stunts and grabs and flips and spins and tricks just like the skateboard or the bike or the surfboard or anything like that.
+
+156. Decide the develop the habit right now -- the habit of focusing on what's right in your world instead of what's wrong. The habit of focusing on waht you do have instead of what you don't have in a situation.
