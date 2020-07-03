@@ -396,4 +396,6 @@
 
 155. We are in the process of(doing the) creating an extreme sport. And so these guys are flipping and flying in the air. Doing stunts and grabs and flips and spins and tricks just like the skateboard or the bike or the surfboard or anything like that.
 
-156. Decide the develop the habit right now -- the habit of focusing on what's right in your world instead of what's wrong. The habit of focusing on waht you do have instead of what you don't have in a situation.
+156. Decide to develop the habit right now -- the habit of focusing on what's right in your world instead of what's wrong. The habit of focusing on what you do have instead of what you don't have in a situation.
+
+157. Popsicle's a  brand name, but it's also become a generic term for any frozen, sugar-filled deal on a stick!
