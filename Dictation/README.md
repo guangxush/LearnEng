@@ -398,4 +398,6 @@
 
 156. Decide to develop the habit right now -- the habit of focusing on what's right in your world instead of what's wrong. The habit of focusing on what you do have instead of what you don't have in a situation.
 
-157. Popsicle's a  brand name, but it's also become a generic term for any frozen, sugar-filled deal on a stick!
+157. Popsicle's(is) a brand(品牌) name, but it's(has) also become a generic(base/typical/general) term(word) for any(every) frozen(冷冻), sugar-filled deal on a stick!
+
+158. But it's the first time we're really, on a global scale, launched a product that was highly relevant to girls.
