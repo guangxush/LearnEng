@@ -400,4 +400,6 @@
 
 157. Popsicle's(is) a brand(品牌) name, but it's(has) also become a generic(base/typical/general) term(word) for any(every) frozen(冷冻), sugar-filled deal on a stick!
 
-158. But it's the first time we're really, on a global scale, launched a product that was highly relevant to girls.
+158. But it's the first time we're(Legos) really, on a global scale(internationally), launched(put in the market/strated selling) a product that was highly(very) relevant(suitable for/appropriate for/compatible with) to girls.
+
+159. 1916: Clarence Saunders opens the first self-service grocery store, the Piggly Wiggly, in Memphis, Tennessee.
