@@ -403,3 +403,5 @@
 158. But it's the first time we're(Legos) really, on a global scale(internationally), launched(put in the market/strated selling) a product that was highly(very) relevant(suitable for/appropriate for/compatible with) to girls.
 
 159. 1916: Clarence Saunders opens the first self-service grocery store, the Piggly Wiggly, in Memphis, Tennessee.
+
+160. I roll on the floor laughing. I say, "That's great. It's really funny, John. You're such a card"
