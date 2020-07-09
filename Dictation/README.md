@@ -404,4 +404,10 @@
 
 159. 1916: Clarence Saunders opens the first self-service grocery store, the Piggly Wiggly, in Memphis, Tennessee.
 
-160. I roll on the floor laughing. I say, "That's great. It's really funny, John. You're such a card"
+160. I roll on the floor laughing. I say, "That's great. It's really funny, John. You're such a card."
+
+161. - Dude, I'm gonna go check out the view. Hey! Look at this clown.
+   - Oh, it's an actual clown. You're not still afraid of clowns, are you?
+   - No!
+
+   
