@@ -406,8 +406,9 @@
 
 160. I roll on the floor laughing. I say, "That's great. It's really funny, John. You're such a card."
 
-161. - Dude, I'm gonna go check out the view. Hey! Look at this clown.
-   - Oh, it's an actual clown. You're not still afraid of clowns, are you?
+161. - Dude, I'm gonna go check(see) out the view. Hey! Look at this clown(fool/joker/idiot/guy).
+   - Oh, it's an actual(a real) clown. You're not still afraid(scared) of clowns, are you?
    - No!
 
-   
+162. Well, he throws down his bat, he comes racing up to the mound. Next thing, both benches are cleared, you know? A brouhaha breaks out between the guys in the camp, you know, and the old Yankee players, and as I'm trying to get Moose Skowron off of one of my teammates you know, somebody pulls me from behind, you know, and I turned around and I popped him. I looked down and -- whoa, man! It's Mickey. I punched his lights out!
+
