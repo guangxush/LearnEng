@@ -412,5 +412,6 @@
 
 162. Well, he throws down his bat, he comes racing up to the mound. Next thing, both benches are cleared, you know? A brouhaha breaks out between the guys in the camp, you know, and the old Yankee players, and as I'm trying to get Moose Skowron off of one of my teammates you know, somebody pulls me from behind, you know, and I turned around and I popped him. I looked down and -- whoa, man! It's Mickey. I punched his lights out!
 
-163. Unbeaching a whale... this is hard. Setting up a tent... hard.
+163. Unbeaching a whale(鲸鱼)... this is hard. Setting up a tent... hard.
 
+164. Bigs Sur Highway is a stretch of Highway 1 that encompasses some of the most breaktaking senery in the world. An 90-mile long  destination; it hugs land's edge from the dramatic Carmel Highlands through the towering nedwoods of rustic Big Sur.
