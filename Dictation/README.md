@@ -415,3 +415,5 @@
 163. Unbeaching a whale(鲸鱼)... this is hard. Setting up a tent... hard.
 
 164. Bigs Sur Highway is a stretch of Highway 1 that encompasses some of the most breaktaking senery in the world. An 90-mile long  destination; it hugs land's edge from the dramatic Carmel Highlands through the towering nedwoods of rustic Big Sur.
+
+165. If I said to you, McDonald's "I'm gonna shoot through to Maccers this arvo", what would I be saying? I have no clue.
