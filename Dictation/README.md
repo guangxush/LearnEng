@@ -416,4 +416,6 @@
 
 164. Bigs Sur Highway is a stretch of Highway 1 that encompasses some of the most breaktaking senery in the world. An 90-mile long  destination; it hugs land's edge from the dramatic Carmel Highlands through the towering nedwoods of rustic Big Sur.
 
-165. If I said to you, McDonald's "I'm gonna shoot through to Maccers this arvo", what would I be saying? I have no clue.
+165. If I said to you, McDonald's "I'm gonna shoot through to Maccers this arvo", what would I be saying? I have no clue(I have no idea/ any clues/I don't know).
+
+166. September 25, 1959 As hundreds of US Army trops stand guard, 9 black students are escorted into Central High School in Little Rock, Arkasas. That happens 2 days after unruly crowds froced the children to withdraw from trying to enter the all white school;
