@@ -418,4 +418,10 @@
 
 165. If I said to you, McDonald's "I'm gonna shoot through to Maccers this arvo", what would I be saying? I have no clue(I have no idea/ any clues/I don't know).
 
-166. September 25, 1959 As hundreds of US Army trops stand guard, 9 black students are escorted into Central High School in Little Rock, Arkasas. That happens 2 days after unruly crowds froced the children to withdraw from trying to enter the all white school;
+166. September 25, 1959, As hundreds of US Army troops stand guard, 9 black students are escorted into Central High School in Little Rock, Arkansas. That happens 2 days after unruly crowds forced the children to withdraw from trying to enter the  all-white school.
+
+167. - I wasn't sure you got my message.
+   - Well, I wasn't sure you called the right guy.
+   - I think this is yours.
+   - Thank you, uh, I'm gonna frame this for my Wall fo Shame.
+   - Really, That's a whole wall?
