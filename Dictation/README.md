@@ -423,5 +423,8 @@
 167. - I wasn't sure you got my message.
    - Well, I wasn't sure you called the right guy.
    - I think this is yours.
-   - Thank you, uh, I'm gonna frame this for my Wall fo Shame.
+   - Thank you, uh, I'm gonna frame(做框，镶边) this for my Wall fo Shame.
    - Really, That's a whole wall?
+
+168. Be sure to watch Season 2 of Enten the Dojo starting Tuesday. October 9, 2012. You never know what might happen...
+169. Amind the bustle of Manhattan, Time Doner blends in like any other teenager. His time spent skateboarding, watching movies, and keeping his iPod playlist up-to-date.
