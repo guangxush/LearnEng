@@ -428,4 +428,5 @@
 
 168. Be sure to watch Season 2 of Enten the Dojo starting Tuesday. October 9, 2012. You never know what might happen...
 169. Amind the bustle(In the midst) of Manhattan, Tim Doner blends in like any other teenager. His time spent skateboarding, watching movies, and keeping(maintain) his iPod playlist up-to-date(current).
-170. It;s just the movies Tim's watching happen to be in Farsi, his comics are in Bengal, and his iPod features hits from Iran. It is the life of the teenage hyper polyglot -- perhaps one of the youngest in the world.
+170. It's just(Except,  but/只不过) the movies Tim's watching happen to be in Farsi, his comics are in Bengal, and his iPod features hits from Iran. It is the life of the teenage hyper polyglot -- perhaps one of the youngest in the world.
+171. The problem with just copying the DNA is like taking a book and all you copy are the letters in the book and you don't copy the spacing between the words or the pronunciation.
