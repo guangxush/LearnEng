@@ -430,3 +430,11 @@
 169. Amind the bustle(In the midst) of Manhattan, Tim Doner blends in like any other teenager. His time spent skateboarding, watching movies, and keeping(maintain) his iPod playlist up-to-date(current).
 170. It's just(Except,  but/只不过) the movies Tim's watching happen to be in Farsi, his comics are in Bengal, and his iPod features hits from Iran. It is the life of the teenage hyper polyglot -- perhaps one of the youngest in the world.
 171. The problem with just copying the DNA is like taking a book and all you copy are the letters in the book and you don't copy the spacing between the words or the pronunciation.
+172. The Norwegian Nobel Committee applauded the Eu's efforts to hold the union together in the face of the debt crisis and its six decades of work to advance(promote/expand) peace and reconciliation.
+173. - We' ll all be burning the midnight oil on this one.
+     - That would be inadvisable
+     - Excuse me?
+     - If you attempt to ignite a petroleum product on this ship at 0:00 hours, you will activate the fire suppression system.
+     - That was just an expression.
+     - Expression of what?
+     - A figure of speech.
