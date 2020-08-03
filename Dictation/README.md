@@ -431,10 +431,13 @@
 170. It's just(Except,  but/只不过) the movies Tim's watching happen to be in Farsi, his comics are in Bengal, and his iPod features hits from Iran. It is the life of the teenage hyper polyglot -- perhaps one of the youngest in the world.
 171. The problem with just copying the DNA is like taking a book and all you copy are the letters in the book and you don't copy the spacing between the words or the pronunciation.
 172. The Norwegian Nobel Committee applauded the Eu's efforts to hold the union together in the face of the debt crisis and its six decades of work to advance(promote/expand) peace and reconciliation.
-173. - We' ll all be burning the midnight oil on this one.
-     - That would be inadvisable
+173. - We(Engineers)' ll all be burning the midnight oil(spending all night working) on this one.
+     - That would be inadvisable(not a good idea).
      - Excuse me?
-     - If you attempt to ignite a petroleum product on this ship at 0:00 hours, you will activate the fire suppression system.
+     - If you attempt(try) to ignite a petroleum product on this ship at 0:00 hours, you will activate(start) the fire suppression system.
      - That was just an expression.
      - Expression of what?
      - A figure of speech.
+
+174. What a haul(真是可惜). A Picasso, a Matisse, Two (of) Monets (paintings), a Gaugain and more. As good as art gets. The value... more than a hundred million dollars. 
+175. Big-name hotels reportedly bought millions of faulty locks from a company called Onity. I would say millions of people worldwide would be at risk every single day until these problems fixed.
