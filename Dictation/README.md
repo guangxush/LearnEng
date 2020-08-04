@@ -441,3 +441,13 @@
 
 174. What a haul(真是可惜). A Picasso, a Matisse, Two (of) Monets (paintings), a Gaugain and more. As good as art gets. The value... more than a hundred million dollars. 
 175. Big-name hotels reportedly bought millions of faulty locks from a company called Onity. I would say millions of people worldwide would be at risk every single day until these problems fixed.
+176. - Whoa! What the hell is this?
+     - It's a gas gun.
+     - A gas gun?
+     - Why not a gun-gun?
+     - Our enemies have gun-guns!
+     - Are these paint balls?
+     - No, These are these knock-out gas.
+     - That's insane.
+     - It maske you look cool.
+     - You said my outfit was pimp!
