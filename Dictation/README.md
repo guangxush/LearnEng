@@ -451,3 +451,4 @@
      - That's insane.
      - It maske you look cool.
      - You said my outfit was pimp!
+177.  Beer, true or false, helps strengthen your bones? For women in particular: Cholesterol... does drinking beer help your cholesterol levels?
