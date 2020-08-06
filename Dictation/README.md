@@ -452,3 +452,4 @@
      - It maske you look cool.
      - You said my outfit was pimp!
 177.  Beer, true or false, helps strengthen your bones? For women in particular: Cholesterol... does drinking beer help your cholesterol levels?
+178.  I equate Persia with luxury; with rich tapestries and beautiful rugs, and my mother's fat, fuzzy Persian cat named Otis. But I also think of a fantastic Persian King named Cyrus the Great who believed in religious and cultural tolerance and who freed the Jews from Babylon to return to Israel.
