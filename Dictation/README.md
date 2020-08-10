@@ -427,10 +427,15 @@
    - Really, That's a whole wall?
 
 168. Be sure to watch Season 2 of Enten the Dojo starting Tuesday. October 9, 2012. You never know what might happen...
+
 169. Amind the bustle(In the midst) of Manhattan, Tim Doner blends in like any other teenager. His time spent skateboarding, watching movies, and keeping(maintain) his iPod playlist up-to-date(current).
+
 170. It's just(Except,  but/只不过) the movies Tim's watching happen to be in Farsi, his comics are in Bengal, and his iPod features hits from Iran. It is the life of the teenage hyper polyglot -- perhaps one of the youngest in the world.
+
 171. The problem with just copying the DNA is like taking a book and all you copy are the letters in the book and you don't copy the spacing between the words or the pronunciation.
+
 172. The Norwegian Nobel Committee applauded the Eu's efforts to hold the union together in the face of the debt crisis and its six decades of work to advance(promote/expand) peace and reconciliation.
+
 173. - We(Engineers)' ll all be burning the midnight oil(spending all night working) on this one.
      - That would be inadvisable(not a good idea).
      - Excuse me?
@@ -440,7 +445,9 @@
      - A figure of speech.
 
 174. What a haul(真是可惜). A Picasso, a Matisse, Two (of) Monets (paintings), a Gaugain and more. As good as art gets. The value... more than a hundred million dollars. 
+
 175. Big-name hotels reportedly bought millions of faulty locks from a company called Onity. I would say millions of people worldwide would be at risk every single day until these problems fixed.
+
 176. - Whoa! What the hell is this?
      - It's a gas gun.
      - A gas gun?
@@ -451,5 +458,9 @@
      - That's insane.
      - It maske you look cool.
      - You said my outfit was pimp!
-177.  Beer, true or false, helps strengthen your bones? For women in particular: Cholesterol... does drinking beer help your cholesterol levels?
-178.  I equate Persia with luxury; with rich tapestries and beautiful rugs, and my mother's fat, fuzzy Persian cat named Otis. But I also think of a fantastic Persian King named Cyrus the Great who believed in religious and cultural tolerance and who freed the Jews from Babylon to return to Israel.
+   
+177. Beer, true or false, helps strengthen your bones? For women in particular: Cholesterol... does drinking beer help your cholesterol levels?
+
+178. I equate Persia with luxury; with rich tapestries(挂毯) and beautiful rugs, and my mother's fat, fuzzy Persian cat named Otis. But I also think of a fantastic Persian King named Cyrus the Great who believed in religious and cultural tolerance and who freed the Jews from Babylon to return to Israel.
+
+179. Do not drive. Let me repeat that; please, do not drive we have now sent a message to all tax; and limo and livery drivers to get off the roads immediately.
