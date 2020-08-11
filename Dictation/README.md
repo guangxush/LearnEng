@@ -463,4 +463,7 @@
 
 178. I equate Persia with luxury; with rich tapestries(挂毯) and beautiful rugs, and my mother's fat, fuzzy Persian cat named Otis. But I also think of a fantastic Persian King named Cyrus the Great who believed in religious and cultural tolerance and who freed the Jews from Babylon to return to Israel.
 
-179. Do not drive. Let me repeat that; please, do not drive we have now sent a message to all tax; and limo and livery drivers to get off the roads immediately.
+179. Do not drive. Let me repeat that; please, do not drive we have now sent a message to all taxi and limo(大型轿车) and livery drivers to get off the roads immediately.
+
+180. With hundreds of styles that fit together beautifully, thousands of colors and ideas, great ranges of kitchens, smart living spaces and lots of wonderful plants for any garden with a little inspiration, you can achieve anything. Homebase; make a house a home.
+
