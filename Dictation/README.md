@@ -449,21 +449,24 @@
 175. Big-name hotels reportedly bought millions of faulty locks from a company called Onity. I would say millions of people worldwide would be at risk every single day until these problems fixed.
 
 176. - Whoa! What the hell is this?
-     - It's a gas gun.
-     - A gas gun?
-     - Why not a gun-gun?
-     - Our enemies have gun-guns!
-     - Are these paint balls?
-     - No, These are these knock-out gas.
-     - That's insane.
-     - It maske you look cool.
-     - You said my outfit was pimp!
-   
+   - It's a gas gun.
+   - A gas gun?
+   - Why not a gun-gun?
+   - Our enemies have gun-guns!
+   - Are these paint balls?
+   - No, These are these knock-out gas.
+   - That's insane.
+   - It maske you look cool.
+   - You said my outfit was pimp!
+
 177. Beer, true or false, helps strengthen your bones? For women in particular: Cholesterol... does drinking beer help your cholesterol levels?
 
 178. I equate Persia with luxury; with rich tapestries(挂毯) and beautiful rugs, and my mother's fat, fuzzy Persian cat named Otis. But I also think of a fantastic Persian King named Cyrus the Great who believed in religious and cultural tolerance and who freed the Jews from Babylon to return to Israel.
 
 179. Do not drive. Let me repeat that; please, do not drive we have now sent a message to all taxi and limo(大型轿车) and livery drivers to get off the roads immediately.
 
-180. With hundreds of styles that fit together beautifully, thousands of colors and ideas, great ranges of kitchens, smart living spaces and lots of wonderful plants for any garden with a little inspiration, you can achieve anything. Homebase; make a house a home.
+180. With hundreds of styles that fit together beautifully(match perfectly), thousands of colors and ideas, great ranges of kitchens, smart living spaces and lots of wonderful plants for any garden with a little inspiration, you can achieve anything. Homebase; make a house a home.
 
+181. According to the polls(民意调查), Obama and Romney are still neck and neck(并驾齐驱). Romney has a very strong lead among white voters.
+
+182. What is it all about? This is really a guide to have to become world-class in just about anything in 6 months or less.
