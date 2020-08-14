@@ -469,4 +469,6 @@
 
 181. According to the polls(民意调查), Obama and Romney are still neck and neck(并驾齐驱). Romney has a very strong lead among white voters.
 
-182. What is it all about? This is really a guide to have to become world-class in just about anything in 6 months or less.
+182. What is it all about? This is really(actually) a guide(manual) to how to become world-class(outstanding) in just about(nearly/almost) anything in 6 months or less.
+
+183. There is a lot more demand for people who wanna just improve themselves than anyone would have guessed.
