@@ -472,3 +472,10 @@
 182. What is it all about? This is really(actually) a guide(manual) to how to become world-class(outstanding) in just about(nearly/almost) anything in 6 months or less.
 
 183. There is a lot more demand for people who wanna just improve themselves than anyone would have guessed.
+
+184. - What are you doing?
+     - What?
+     - Did... did you just double-dip that chip?
+     - Execute me? You double-dipped the chip.
+     - Double-dipped? What are you talking about?
+     - You dipped the chip... you took a bite... and you dipped again.
