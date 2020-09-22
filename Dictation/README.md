@@ -479,3 +479,12 @@
      - Execute me? You double-dipped the chip.
      - Double-dipped? What are you talking about?
      - You dipped the chip... you took a bite... and you dipped again.
+
+185. - Alright, be careful with the car, babe.
+     - Yeah, yeah.
+     - And don't move the seat. I've got it right where I like it.
+     - Goodbye.
+     - 2 and 10, babe.
+     - Okay.
+     - Don't peel out.
+     - I won't.
