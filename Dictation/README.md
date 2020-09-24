@@ -474,17 +474,19 @@
 183. There is a lot more demand for people who wanna just improve themselves than anyone would have guessed.
 
 184. - What are you doing?
-     - What?
-     - Did... did you just double-dip that chip?
-     - Execute me? You double-dipped the chip.
-     - Double-dipped? What are you talking about?
-     - You dipped the chip... you took a bite... and you dipped again.
+   - What?
+   - Did... did you just double-dip that chip?
+   - Execute me? You double-dipped the chip.
+   - Double-dipped? What are you talking about?
+   - You dipped the chip... you took a bite... and you dipped again.
 
 185. - Alright, be careful with the car, babe.
-     - Yeah, yeah.
-     - And don't move the seat. I've got it right where I like it.
-     - Goodbye.
-     - 2 and 10, babe.
-     - Okay.
-     - Don't peel out.
-     - I won't.
+   - Yeah, yeah.
+   - And don't move the seat. I've got it right where I like it.
+   - Goodbye.
+   - 2 and 10, babe.
+   - Okay.
+   - Don't peel out(剥皮).
+   - I won't.
+
+186. One of the things Alex doesn't have is a knee-jerk response to the types of object that you present him.
