@@ -489,4 +489,6 @@
    - Don't peel out(剥皮).
    - I won't.
 
-186. One of the things Alex doesn't have is a knee-jerk response to the types of object that you present him.
+186. One of the things(my friends) Alex doesn't have is a knee-jerk response to the types of object that you present(show) him.
+187. The brand name alone and rectangular, calorie-laden, cream filled, golden cake is blazed into American memories.
+188. Sears has a Toshiba 50-inch LED. It normally retails for \$799 it's marks down to \$299 .
