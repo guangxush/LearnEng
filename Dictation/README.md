@@ -493,4 +493,4 @@
 187. The brand name alone and rectangular, calorie-laden, cream filled, golden cake is blazed into American memories.
 188. Sears has a Toshiba 50-inch LED. It normally retails for \$799 it's marks down to \$299 .
 189. Imagine you have got a train and it's hurtling down a track. In its paths 5 people are trapped on the line and cannot escape. Fortunately, you can flick a switch which diverts the train down a forkin that track away from those 5 people, but at a price. There is another person trapped down that fork, and the train will kill them instead. Question: should  you flick the switch?
-190. Well, I'd pay off my bills and retire. Just like everybody else!
+190. Well, this is it. We're down South, Willie. How does it feel to be back in the land of cotton? Tennessee isn't bad, but she isn't a pretty piece like old home, Mississippi.
