@@ -495,4 +495,5 @@
 189. Fortunately, you can flick a switch which diverts the train down a fork in that track away from the 5 people - but at a price. Question: Should you flick the switch?
 190. Imagine you have got a train and it's hurtling down a track. In its paths 5 people are trapped on the line and cannot escape. Fortunately, you can flick a switch which diverts the train down a forkin that track away from those 5 people, but at a price. There is another person trapped down that fork, and the train will kill them instead. Question: should  you flick the switch?
 191. Well, this is it. We're down South, Willie. How does it feel to be back in the land of cotton? Tennessee isn't bad, but she isn't a pretty piece(country) like old home, Mississippi.
-192. Today, we solute you, Mr. Giant Taco Salad Inventor. Ground beef, refried beans, guacamole, cheese, sour cream and if there's any room left a few shreds of lettuce! I don't see no lettuce.
+192. Today, we salute(致敬) you, Mr. Giant Taco Salad Inventor. Ground beef, refried beans, guacamole, cheese, sour cream and if there's any room left a few shreds of lettuce! I don't see no lettuce.
+193. Yeah, I've lost so much weight that if I don't hold these up they'll fall, and I'm not gonna do that right now!  But, uh. I'm really pleased with this and I just wanna share this with everybody. Thanks a lot.
