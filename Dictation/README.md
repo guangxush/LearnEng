@@ -490,11 +490,21 @@
    - I won't.
 
 186. One of the things(my friends) Alex doesn't have is a knee-jerk response to the types of object that you present(show) him.
+
 187. The brand name alone and rectangular, calorie-laden, cream filled, golden cake is blazed into American memories.
+
 188. Sears has a Toshiba 50-inch LED. It normally retails for \$799 it's marks down to \$299 .
+
 189. Fortunately, you can flick a switch which diverts the train down a fork in that track away from the 5 people - but at a price. Question: Should you flick the switch?
+
 190. Imagine you have got a train and it's hurtling down a track. In its paths 5 people are trapped on the line and cannot escape. Fortunately, you can flick a switch which diverts the train down a forkin that track away from those 5 people, but at a price. There is another person trapped down that fork, and the train will kill them instead. Question: should  you flick the switch?
+
 191. Well, this is it. We're down South, Willie. How does it feel to be back in the land of cotton? Tennessee isn't bad, but she isn't a pretty piece(country) like old home, Mississippi.
+
 192. Today, we salute(致敬) you, Mr. Giant Taco Salad Inventor. Ground beef, refried beans, guacamole, cheese, sour cream and if there's any room left a few shreds of lettuce! I don't see no lettuce.
+
 193. Yeah, I've lost so much weight that if I don't hold these up they'll fall, and I'm not gonna do that right now!  But, uh. I'm really pleased with this and I just wanna share this with everybody. Thanks a lot.
-194. As you know, it was his nose that have him away with every fib.
+
+194. As you(probably) know, it was his nose that gave him away(betray) with every fib(while lie).
+
+195. Do you want a man who smells like he can bake you a gourmet cake in the dream kitchen he built for you with his own hands? Of course you do!
