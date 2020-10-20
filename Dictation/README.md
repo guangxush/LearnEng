@@ -508,3 +508,5 @@
 194. As you(probably) know, it was his nose that gave him away(betray) with every fib(while lie).
 
 195. Do you want a man who smells like he can bake you a gourmet cake in the dream kitchen he built for you with his own hands? Of course you do!
+
+196. Shiny as glass, these pigs are meant to be broken. Just leave some for bad after Christmas dinner. Now dad always got the first piece and that was traditionally the butt! The rest of the pieces --- passed around. The pleasing pig feast for good luck!
