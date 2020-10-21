@@ -510,3 +510,5 @@
 195. Do you want a man who smells like he can bake you a gourmet cake in the dream kitchen he built for you with his own hands? Of course you do!
 
 196. Shiny as glass, these pigs are meant to be broken. Just leave some for bad after Christmas dinner. Now dad always got the first piece and that was traditionally the butt! The rest of the pieces --- passed around. The pleasing pig feast for good luck!
+
+197. Piraha can be spoken, hummed, sung, even whistled. No words for colors, No paot or feature tense. And incredibly no numbers. Because they don't need them.
