@@ -515,4 +515,6 @@
 
 198. She ate, slept, even showered with her pet primate(monkey). She calls little Darwin her son and says, "He needs his mother".
 
-199. Make sure your belongings are hidden away in the compartments(隔间) above or under the seat before you.
+199. Make sure(Be sure that) your belongings(bags/carry-ons财物) are hidden away in the compartments(隔间) above(you) or under the seat before(in front of) you.
+
+200. Armageddons(世界末日) and how to survive(生存) it is currently trending. A lot of people wanna know "how can we survive the events that lead up to the end of the world."
