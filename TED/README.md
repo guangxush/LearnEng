@@ -1,5 +1,21 @@
 ## TED
 
+### Tips to boost your confidence
+
+When faced   with  a big challenge where potential failture seems to lurk at every corner, maybe you've heard this advice before: "Be more confident."
+
+At most likely, this is what you thik when  you heart it:"If oly it were that simple." But what is confidence? Take the belief that you are valuable, worthwhile, and capable, also know as self-esteem(自尊心), add in the optimism that comes when you are certain of your abilities, and then empowered by these, act courageously to face a challenge hand-on. This is confidence. It turns thoughts into action. So where does confidence even come from? There are serveral factors  that impact confidence. 
+
+One: what you're born with, such as your genes, which will impact things like the balance of neurichemicials in your brain. 
+
+Two: how you're treated. This includes the social pressures of your environment. 
+
+And three: the part you have control over, the choice you make, the risk you take, and how are you think about and respond to challenges and setbacks and how you think about and respond to challenges and setbacks.  It isn't possible to completely untangle these three factors, but the personal choices we make certainly play a major role  in confidence development. So, by keeping in mind a few practical tips, we do actually have the power to cultivate our own confidence. 
+
+
+
+
+
 ### Bilibili's May 4th Youth Day Video sparks discussion on social media
 
 On the evening of May 3, CCTV broadcast a youth-themed video from Bilibili, a Chinese online entertainment platform, before the "Xinwen Lianbo". This was the first time a Bilibili video has appeared on CCTV's prime time. This video, which lasted less than four minutes, was posted by six mainstream media outlets in conjunction with Bilibili and has been widely discussed on social media since then.

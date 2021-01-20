@@ -518,3 +518,20 @@
 199. Make sure(Be sure that) your belongings(bags/carry-ons财物) are hidden away in the compartments(隔间) above(you) or under the seat before(in front of) you.
 
 200. Armageddons(世界末日) and how to survive(生存) it is currently trending. A lot of people wanna know "how can we survive the events that lead up to the end of the world."
+
+201. Oh, I've got lots of letters for Santa today. And every year they're the same. Some ask for toys, but a lot of ask questions. Like you take this one... 
+
+   - Dear Santa, why do you wear a red suit?
+   - My turn. Dear Santa, why do you come down the chimney when I'm asleep?
+   - Why do you have whiskers?
+   - Why do you live at the North Pole?
+
+202. - Step one: worms(蚯蚓):
+
+     - EW!(Gross/disgusting 恶心的)
+
+     - Okay, right there. "EW" is one of the things you're not gonna(going to) wanna(want to) say in front of your father-in-law(岳父). It's right up there with "icky" and "get it away". Now pick one up.
+
+     - Really?
+
+     - You're gonna have to do it when you're fishing.
