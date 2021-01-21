@@ -12,7 +12,13 @@ Two: how you're treated. This includes the social pressures of your environment.
 
 And three: the part you have control over, the choice you make, the risk you take, and how are you think about and respond to challenges and setbacks and how you think about and respond to challenges and setbacks.  It isn't possible to completely untangle these three factors, but the personal choices we make certainly play a major role  in confidence development. So, by keeping in mind a few practical tips, we do actually have the power to cultivate our own confidence. 
 
+Tip1: Try A Quick Fix: There are a few tricks that can give you an immediate confidence boost in the short term. Picture your success when you're beginning a difficult task, something as simple as listening to music with deep bass; it can promote feeling of power. You can even strike a powerful pose or give yourself a pep talk. 
 
+Tip2: Believe in your ability to improve. If you're looking for a long-term change, consider the way you think about your abilities and talents. Do you think they are fixed at birth, or that they can be developed, like a muscle? These beliefs matter because they can influence how you act when you're faced with setbacks. If you have a fixed mindset, meaning that you think your talents are locked in place, you might give up, assuming you've discovered something you're not very good at. But if you have a groeth mindset and think your abilityties can improve, a challenge is an opportunity to learn and grow. Neuescience supports the growth mindset. The connections in your brain do get stronger and frow woth study and practice. It also turns out, on average, people who have a growth mindset are more successful, getting better grades, and doing better in the face of challenges. 
+
+Tip3: Practice failure. Face it, you're going to fail sometimes. Everyone does. J.K. Rowling was rejected by twelve different publishers before one picked up "Harry Potter." The Wright Brothers built on history' failed attempts at flight, including some of their own, before desinging a successful airplane. Studies show that those who fail regularly and keep trying anyway are better equipped to response to challenges and setbacks in a contrcutive(建设性的；积极的) way.  They learn how to try different strategies, ask others for advice, and persevere. So think of a challenge you want to take on, realize it's not going to be easy, accept that you'll make mistakes, and be kind to yourself when you do. 
+
+Give yourself a pep talk, stand up, and go for it. The excitement you'll feel knowing that whatever the result, you have gained greater knowledge and understanding. This is confidence.
 
 
 
