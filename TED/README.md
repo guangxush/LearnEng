@@ -20,6 +20,12 @@ Tip3: Practice failure. Face it, you're going to fail sometimes. Everyone does. 
 
 Give yourself a pep talk, stand up, and go for it. The excitement you'll feel knowing that whatever the result, you have gained greater knowledge and understanding. This is confidence.
 
+###  Almost nnything can be preserved in alcohol, except health, happiness, and money
+
+This chimpanzee stumbles across a windfall of overripe plums. Many of them have split open, drawing him to their intoxicating fruity odor. He gorges himeself and begins to experience some ... strage effects. This unwitting ape has stumbled on a process that humans will evnetually harness to create beer, wine, and other alcoholic drinks. The sugars in overripe fruit attract microscopic organisms known as yeasts. As the yeasts feed on the fruit sugars they produce a compound called ethanol -- the type of alcohol in alcoholic beverages. This process is called fermentation(发酵).
+
+
+
 
 
 ### Bilibili's May 4th Youth Day Video sparks discussion on social media
