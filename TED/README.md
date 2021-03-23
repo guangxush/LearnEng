@@ -96,6 +96,10 @@ We know that the Earth is round, Everything we understtand about this planet is 
 
 I discovered a thing called the "neurodiversity paradigm". The neurodiversity paradigm is an alternative way of thinking about autism. 
 
+### A curable condition that cause blindness Andraw Bastawrous
+
+An estimated 20 million cases of blindness worldwide are caused by cataracts, a curable condition affecting the lens that focused image onto the eye's retina. A cataract coours when proteins in the lens lose their normal arrangement, clumping together in a way that cause discoloration ot clouding, and eventually blocks most vision. Cataracts can be caused by eye injury, certain medications, ultraviolet radition, diabetes, smoking, or some genetic disorders. But the most common cause ia aging. In the United States, more than 50% of people over the age of 80 develop them. Cataracts were treated over 2500 years ago in India, through similar procedures may have existed even earlier In Ancient Egypt and Babylon.
+
 ### Sun Tzu's The Act of War
 
 I find my life fluctuates between two internal states:  war and ppeace. War feels like being fired, falling sick, or getting divorce. It feels like stress, wanting, desire, dissatisfaction, danger, or being off-balance. Peace feels like finding a new job, becoming healthy again, or entering a new and loving relationship. It feels like satisfaction, contentment, satiation, or love. War feels like being asked a question, and peace feels like finding an answer. And although I want everlasting peace, I find war to be the dominant state of my internal life. War acts as a necessary precursor to peace. To better navigate the battle within, I plan to take quotees from Sun Tzu's The Act of War, combine them with my own life experience, and create an original set of principles. I attempt not to reduce war, to the level of oridinary occurrences, but to elevate oridinary occurrences to the level of war -- imbuing them with the significance I believe they deserve. 
